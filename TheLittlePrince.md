@@ -146,3 +146,105 @@ What the little prince did not dare confess was that he was sorry most of all to
 他惋惜地叹了口气，并且又对自己说道：
 “本来这是我唯一可以和他交成朋友的人。可是他的星球确实太小了，住不 下两个人……”
 小王子没有勇气承认的是：他留恋这颗令人赞美的星星，特别是因为在那里 每二十四小时就有一千四百四十次日落！
+
+
+————"Just that," said the fox. "To me, you are still nothing more than a little boy who is just like a hundred thousand other little boys. And I have no need of you. And you, on your part, have no need of me. To you, I am nothing more than a fox like a hundred thousand other foxes. But if you tame me, then we shall need each other. To me, you will be unique in all the world. To you, I shall be unique in all the world…"————
+“一点不错，”狐狸说。“对我来说，你还只是一个小男孩，就像其他千万 个小男孩一样。我不需要你。你也同样用不着我。对你来说，我也不过是一只狐狸，和其他千万只狐狸一样。但是，如果你驯服了我，我们就互相不可缺少了。 对我来说，你就是世界上唯一的了；我对你来说，也是世界上唯一的了。”
+
+
+
+————"My life is very monotonous," the fox said. "I hunt chickens; men hunt me. All the chickens are just alike, and all the men are just alike. And, in consequence, I am a little bored. But if you tame me, it will be as if the sun came to shine on my life . I shall know the sound of a step that will be different from all the others. Other steps send me hurrying back underneath the ground. Yours will call me, like music, out of my burrow. And then look: you see the grain-fields down yonder? I do not ea t bread. Wheat is of no use to me. The wheat fields have nothing to say to me. And that is sad. But you have hair that is the colour of gold. Think how wonderful that will be when you have tamed me! The grain, which is also golden, will bring me bac k the thought of you. And I shall love to listen to the wind in the wheat…"————
+The fox gazed at the little prince, for a long time.
+"Please-- tame me!" he said.
+"I want to, very much," the little prince replied. "But I have not much time. I have friends to discover, and a great many things to understand."
+"One only understands the things that one tames," said the fox. "Men have no more time to understand anything. They buy things all ready made at the shops. But there is no shop anywhere where one can buy friendship, and so men have no friends any more. If you want a friend, tame me…"
+"What must I do, to tame you?" asked the little prince.
+"You must be very patient," replied the fox. "First you will sit down at a little distance from me-- like that-- in the grass. I shall look at you out of the corner of my eye, and you will say nothing. Words are the source of misunderstandings. But yo u will sit a little closer to me, every day…"
+The next day the little prince came back.
+"It would have been better to come back at the same hour," said the fox. "If, for example, you come at four o'clock in the afternoon, then at three o'clock I shall begin to be happy. I shall feel happier and happier as the hour advances. At four o'clock, I shall already be worrying and jumping about. I shall show you how happy I am! But if you come at just any time, I shall never know at what hour my heart is to be ready to greet you… One must observe the proper rites…"
+"What is a rite?" asked the little prince.
+"Those also are actions too often neglected," said the fox. "They are what make one day different from other days, one hour from other hours. There is a rite, for example, among my hunters. Every Thursday they dance with the village girls. So Thursday is a wonderful day for me! I can take a walk as far as the vineyards. But if the hunters danced at just any time, every day would be like every other day, and I should never have any vacation at all."
+__So the little prince tamed the fox. And when the hour of his departure drew near--
+"Ah," said the fox, "I shall cry."
+"It is your own fault," said the little prince. "I never wished you any sort of harm; but you wanted me to tame you…"
+"Yes, that is so," said the fox.
+"But now you are going to cry!" said the little prince.
+"Yes, that is so," said the fox.
+"Then it has done you no good at all!"
+"It has done me good," said the fox, "because of the color of the wheat fields."__ And then he added:
+"Go and look again at the roses. You will understand now that yours is unique in all the world. Then come back to say goodbye to me, and I will make you a present of a secret."
+The little prince went away, to look again at the roses.
+__"You are not at all like my rose," he said. "As yet you are nothing. No one has tamed you, and you have tamed no one. You are like my fox when I first knew him. He was only a fox like a hundred thousand other foxes. But I have made him my friend, and now he is unique in all the world."
+And the roses were very much embarrassed.
+"You are beautiful, but you are empty," he went on. "One could not die for you. To be sure, an ordinary passerby would think that my rose looked just like you-- the rose that belongs to me. But in herself alone she is more important than all the hundreds of you other roses: because it is she that I have watered; because it is she that I have put under the glass globe; because it is she that I have sheltered behind the screen; because it is for her that I have killed the caterpillars (except the two or three that we saved to become butterflies); because it is she that I have listened to, when she grumbled, or boasted, or even sometimes when she said nothing. Because she is my rose.__
+And he went back to meet the fox.
+"Goodbye," he said.
+"Goodbye," said the fox. __"And now here is my secret, a very simple secret: It is only with the heart that one can see rightly; what is essential is invisible to the eye."__
+"What is essential is invisible to the eye," the little prince repeated, so that he would be sure to remember.
+__"It is the time you have wasted for your rose that makes your rose so important."__
+"It is the time I have wasted for my rose--" said the little prince, so that he would be sure to remember.
+__"Men have forgotten this truth," said the fox. "But you must not forget it. You become responsible, forever, for what you have tamed. You are responsible for your rose…"
+"I am responsible for my rose," the little prince repeated, so that he would be sure to remember.__
+
+“我的生活很单调。我捕捉鸡，而人又捕捉我。所有的鸡全都一样，所有的 人也全都一样。因此，我感到有些厌烦了。但是，如果你要是驯服了我，我的生活就一定会是欢快的。我会辨认出一种与众不同的脚步声。其他的脚步声会使我 躲到地下去，而你的脚步声就会象音乐一样让我从洞里走出来。再说，你看！你看到那边的麦田没有？我不吃面包，麦子对我来说，一点用也没有。我对麦田无 动于衷。而这，真使人扫兴。但是，你有着金黄色的头发。那么，一旦你驯服了我，这就会十分美妙。麦子，是金黄色的，它就会使我想起你。而且，我甚至会 喜欢那风吹麦浪的声音……”“请你驯服我吧！”他说。
+“我是很愿意的。”小王子回答道，“可我的时间不多了。我还要去寻找朋 友，还有许多事物要了解。”
+“只有被驯服了的事物，才会被了解。”狐狸说，“人不会再有时间去了解 任何东西的。他们总是到商人那里去购买现成的东西。因为世界上还没有购买朋友的商店，所以人也就没有朋友。如果你想要一个朋友，那就驯服我吧！”
+“那么应当做些什么呢？”小王子说。
+“应当非常耐心。”狐狸回答道，“开始你就这样坐在草丛中，坐得离我稍 微远些。我用眼角瞅着你，你什么也不要说。话语是误会的根源。但是，每天，你坐得靠我更近些……”
+第二天，小王子又来了。
+“最好还是在原来的那个时间来。”狐狸说道，“比如说，你下午四点钟来， 那么从三点钟起，我就开始感到幸福。时间越临近，我就越感到幸福。到了四点钟的时候，我就会坐立不安；我就会发现幸福的代价。但是，如果你随便什么时 候来，我就不知道在什么时候该准备好我的心情……应当有一定的仪式。”
+“仪式是什么？”小王子问道。
+“这也是一种早已被人忘却了的事。”狐狸说，“它就是使某一天与其他日 子不同，使某一时刻与其他时刻不同。比如说，我的那些猎人就有一种仪式。他们每星期四都和村子里的姑娘们跳舞。于是，星期四就是一个美好的日子！我可 以一直散步到葡萄园去。如果猎人们什么时候都跳舞，天天又全都一样，那么我也就没有假日了。”
+就这样，小王子驯服了狐狸。当出发的时刻就快要来到时：
+“啊！”狐狸说，“我一定会哭的。”
+“这是你的过错，”小王子说，“我本来并不想给你任何痛苦，可你却要我驯 服你……”
+“是这样的。”狐狸说。
+“你可就要哭了！”小王子说。
+“当然罗。”狐狸说。
+“那么你什么好处也没得到。”
+“由于麦子颜色的缘故，我还是得到了好处。”狐狸说。
+然后，他又接着说。
+“再去看看那些玫瑰花吧。你一定会明白，你的那朵是世界上独一无二的玫 瑰。你回来和我告别时，我再赠送给你一个秘密。”
+于是小王子又去看那些玫瑰。
+“你们一点也不象我的那朵玫瑰，你们还什么都不是呢！”小王子对她们说。 “没有人驯服过你们，你们也没有驯服过任何人。你们就象我的狐狸过去那样，它那时只是和千万只别的狐狸一样的一只狐狸。但是，我现在已经把它当成了我 的朋友，于是它现在就是世界上独一无二的了。”
+这时，那些玫瑰花显得十分难堪。
+“你们很美，但你们是空虚的。”小王子仍然在对她们说，“没有人能为你 们去死。当然罗，我的那朵玫瑰花，一个普通的过路人以为她和你们一样。可是，她单独一朵就比你们全体更重要，因为她是我浇灌的。因为她是我放在花罩中的。 因为她是我用屏风保护起来的。因为她身上的毛虫（除了留下两三只为了变蝴蝶而外）是我除灭的。因为我倾听过她的怨艾和自诩，甚至有时我聆听着她的沉默。 因为她是我的玫瑰。”
+“再见了。”小王子说道。
+“再见。”狐狸说。“喏，这就是我的秘密。很简单：只有用心才能看得清。 实质性的东西，用眼睛是看不见的。”
+“实质性的东西，用眼睛是看不见的。”小王子重复着这句话，以便能把它 记在心间。
+“正因为你为你的玫瑰花费了时间，这才使你的玫瑰变得如此重要。”
+“正因为你为你的玫瑰花费了时间……”小王子又重复着，要使自己记住这些。
+“人们已经忘记了这个道理，”狐狸说，“可是，你不应该忘记它。你现在 要对你驯服过的一切负责到底。你要对你的玫瑰负责……”
+“我要对我的玫瑰负责……”小王子又重复着……
+
+
+As the little prince dropped off to sleep, I took him in my arms and set out walking once more. I felt deeply moved, and stirred. It seemed to me that I was carrying a very fragile treasure. It seemed to me, even, that there was nothing more fragile on all Earth. In the moonlight I looked at his pale forehead, his closed eyes, his locks of hair that trembled in the wind, and I said to myself: "What I see here is nothing but a shell. What is most important is invisible…"
+As his lips opened slightly with the suspicious of a half-smile, I said to myself, again: __"What moves me so deeply, about this little prince who is sleeping here, is his loyalty to a flower-- the image of a rose that shines through his whole being like the flame of a lamp, even when he is asleep…"__ And I felt him to be more fragile still. I felt the need of protecting him, as if he himself were a flame that might be extinguished by a little puff of wind…
+And, as I walked on so, I found the well, at daybreak.
+小王子睡觉了，我就把他抱在怀里，又重新上路了。我很激动。就好象抱着 一个脆弱的宝贝。就好象在地球上没有比这更脆弱的了。我借着月光看着这惨白的面额，这双紧闭的眼睛，这随风飘动的绺绺头发，这时我对自己说道：“我所 看到的仅仅是外表。最重要的是看不见的……”
+由于看到他稍稍张开的嘴唇露出一丝微笑，我又自言自语地说：“在这个熟 睡了的小王子身上，使我非常感动的，是他对他那朵花的忠诚，是在他心中闪烁的那朵玫瑰花的形象。这朵玫瑰花，即使在小王子睡着了的时候，也象一盏灯的 火焰一样在他身上闪耀着光辉……”这时，我就感觉到他更加脆弱。应该保护灯焰：一阵风就可能把它吹灭……
+于是，就这样走着，我在黎明时发现了水井。
+
+
+
+And I understood what he had been looking for.
+I raised the bucket to his lips. He drank, his eyes closed. It was as sweet as some special festival treat. This water was indeed a different thing from ordinary nourishment. Its sweetness was born of the walk under the stars, the song of the pulley, the effort of my arms. It was good for the heart, like a present. When I was a little boy, the lights of the Christmas tree, the music of the Midnight Mass, the tenderness of smiling faces, used to make up, so, the radiance of the gifts I received
+我把水桶提到他的嘴边。他闭着眼睛喝水。就象节日一般舒适愉快。这水远 不只是一种饮料，它是披星戴月走了许多路才找到的，是在辘轳的歌声中，经过我双臂的努力得来的。它象是一件礼品慰藉着心田。在我小的时候，圣诞树的灯 光，午夜的弥撒的音乐，甜蜜的微笑，这一切都使圣诞节时我收到的礼品辉映着幸福的光彩。
+
+"But the eyes are blind. One must look with the heart…"
+“眼睛是什么也看不见的。应该用心去寻找。”
+
+"It is just as it is with the flower. If you love a flower that lives on a star, it is sweet to look at the sky at night. All the stars are a-bloom with flowers…"
+“这就象花一样。如果你爱上了一朵生长在一颗星星上的花，那么夜间，你 看着天空就感到甜蜜愉快。所有的星星上都好象开着花。”
+
+"All men have the stars," he answered, "but they are not the same things for different people. For some, who are travelers, the stars are guides. For others they are no more than little lights in the sky. For others, who are scholars, they are problems . For my businessman they were wealth. But all these stars are silent. You-- you alone-- will have the stars as no one else has them--
+"What are you trying to say?"
+"In one of the stars I shall be living. In one of them I shall be laughing. And so it will be as if all the stars were laughing, when you look at the sky at night… you-- only you-- will have stars that can laugh!"
+“人们眼里的星星并不都一样。对旅行的人来说，星星是向导。对别的人来 说，星星只是些小亮光。对另外一些学者来说，星星就是他们探讨的学问。对我所遇见的那个实业家来说，星星是金钱。但是，所有这些星星都不会说话。你呢， 你的那些星星将是任何人都不曾有过的……”
+“你说的是什么？”
+“夜晚，当你望着天空的时候，既然我就住在其中一颗星星上，既然我在其 中一颗星星上笑着，那么对你来说，就好象所有的星星都在笑，那么你将看到的
+星星就是会笑的星星！”
+
+"You understand… it is too far. I cannot carry this body with me. It is too heavy."
+“你明白，路很远。我不能带着这付身躯走。它太重了。”
+
