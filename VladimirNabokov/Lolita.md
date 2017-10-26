@@ -8,4 +8,16 @@ seraphs, the misinformed, simple, noble-winged seraphs, envied. Look at this tan
 
 * A poet ю mes heures, I composed a madrigal to the soot-black lashes of her pale-gray vacant eyes, to the five asymmetrical freckles on her bobbed nose, to the blond down of her brown limbs; but I tore it up and cannot recall it today. Only in the tritest of terms (diary resumed) can I describe Lo's features: I might say her hair is auburn, and her lips as red as licked red candy, the lower one prettily plump--oh, that I were a lady writer who could have her pose naked in a naked light! But instead I am lanky, big-boned, wooly-chested Humbert Humbert, with thick black eyebrows and a queer accent, and a cesspoolful of rotting monsters behind his slow boyish smile. And neither is she the fragile child of a feminine novel. What drives me insane is the twofold nature of this nymphet--of every nymphet, perhaps; this mixture in my Lolita of tender dreamy childishness and a kind of eerie vulgarity, stemming from the snub-nosed cuteness of ads and magazine pictures, from the blurry pinkness of adolescent maidservants in the Old Country (smelling of crushed daisies and sweat); and from very young harlots disguised as children in provincial brothels; and then again, all this gets mixed up with the exquisite stainless tenderness seeping through the musk and the mud, through the dirt and the death, oh God, oh God. And what is most singular is that she, this Lolita, my Lolita, has individualized the writer's ancient lust, so that above and over everything there is--Lolita.  作为我的时代的诗人，我写了一首抒情短诗，为她灰蒙蒙茫然的眼睛上那对膝黑的睫毛，为她短截的鼻子上那不对称的五个雀斑，为她棕色肢体上遍布的黑色软毛；但我把它撕碎了，今天已想不起来。我只能用最刻板的语言(日记可以重写)来描述洛的特征：我应该说她的头发是赤褐色的，她的唇红得象舔过的红色蜜饯，下唇凸出甚为漂亮——噢，如果我是个女性作家，我就可以让她在赤裸的灯光下作出裸体的姿态！然而，我却是瘦高个、骨节宽粗、长满绵羊般胸毛的亨伯特·亨伯特，浓黑的眉毛，奇特的口音，在他小伙子式优雅的微笑后面，潜藏的是一个污水沟般腐臭的魔鬼。而她，也不是一部女性作品中脆弱的孩子。使我失去理智的是这个性感少女的二重性——可能也是所有性感少女的；我的洛丽塔身上混和了温柔如梦的孩子气与一种怪异的粗野，是从广告和滑稽画片上那些狮子鼻的做作态学来的；是从“旧时代”弥散着辗碎了的雏菊和汗味的成年仆役身上那种模糊不清的左倾思想学来的；是从地方妓院里那些非常年轻、却还要装成孩子的妓女那儿学来的；而后，所有这一切又与白璧无瑕无以伦比的温柔混杂在一起，渗入麝香味的草丛和泥土之中，渗透尘埃和死亡，噢，上帝，噢，上帝啊，最特别的是她，这个洛丽塔，我的洛丽塔，已经控制了作者的古老欲望，因此在一切的一切之上和之后就只有——洛丽塔。
 
+*  If I dwell at some length on the tremors and groupings of that distant night, it is because I insist upon proving that I am not, and never was, and never could have been, a brutal scoundrel. The gentle and dreamy regions though which I crept were the patrimonies of poets--not crime's prowling ground. Had I reached my goal, my ecstasy would have been all softness, a case of internal combustion of which she would hardly have felt the heat, even if she were wide awake. But I still hoped she might gradually be engulfed in a completeness of stupor that would allow me to taste more than a glimmer of her. And so, in between tentative approximations, with a confusion of perception metamorphosing her into eyespots of moonlight or a fluffy flowering bush, I would dream I regained consciousness, dream I lay in wait. 我之所以最终能滞留在兴奋的颤栗、以及对那遥远夜晚的摸索中，是因为我坚持要证明我现在不是、从来也不是、将来也不可能是一个兽性恶棍。我偷行过的那个温和朦胧的境地是诗人的遗产——不是罪犯潜巡的地狱。如果我够到了我的目标，我的狂热就会全部化作柔情，是一种即使她清醒时也感觉不到其热力的内心燃烧。但是我仍然希望她能渐渐陷入彻底的昏迷，这样我便可以体味更多，而不仅仅是她的晶莹。因此在趋向靠近当中，因为混乱的感觉将她变形为月光透下的眼状斑点或是覆满松软茸草、鲜花盛开的灌木，我于是梦见我重获知觉，梦见我躺卧在期待中。
+
+
+
+
+
+
+
+
+
+
+
 
