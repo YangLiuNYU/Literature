@@ -1,0 +1,5 @@
+he mother’s face was of a fading prettiness that would soon be patted with broken veins; her expression was both tranquil and aware in a pleasant way. However, one’s eyes moved on quickly to her daughter, who had magic in her pink palms and her cheeks lit to a lovely flame, like the thrilling flush of children after their cold baths in the evening. Her fine high forehead sloped gently up to where her hair, bordering it like an armorial shield, burst into lovelocks and waves and curlicues of ash blonde and gold. Her eyes were bright, big, clear, wet, and shining, the color of her cheeks was real, breaking close to the surface from the strong young pump of her heart. Her body hovered delicately on the last edge of childhood—she was almost eighteen, nearly complete, but the dew was still on her.
+
+母亲脸上尚有往日的风韵，这风韵不久就会被颓丧的心情蚕食。她的神态令人愉悦地兼备了安详与明达事理，然而，人们的目光很快就会移向她的女儿，她那粉红色的手掌似乎有着魔力，她的双颊焕发出迷人的光彩，就像孩子们傍晚洗过冷水浴后红扑扑的小脸蛋一样可爱。她那漂亮而开阔的前额舒缓地上伸到发际，金黄色的头发像一枚盾牌将额头掩起，再蓬松出一头波浪形鬈发。她那对水汪汪的大眼睛晶莹亮丽，闪烁着光芒。她的双颊天然红润，那是从她有力跳动的年轻的心脏里迸发出的色彩。她的体态微妙地徘徊在孩提时代的最后边缘——她就要满十八岁了，她几乎完全长成妇人，然而少女时代的影子仍在她身上如清晨的露水般若隐若现。
+
+
