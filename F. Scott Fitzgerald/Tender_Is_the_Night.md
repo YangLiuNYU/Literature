@@ -20,4 +20,16 @@ Rosemary dozed for three hours and then lay awake, suspended in the moonshine. C
  
  萝丝玛丽向来懒得动脑，除了对她母亲那种用之不竭的才情有过逻想，因而她母亲一旦将脐带最后剪断，她便睡不着觉了。一线黎明将天色送进高大的落地长窗，她从床上爬起来，赤裸着双脚走到外面尚有热气的平台上。夜空中传来神秘的声响。网球场那边的树上，一只坏脾气的鸟单调而得意洋洋地叫个不停。旅馆后边沿环形车道响起一阵脚步声，从不同的节奏听得出是走在泥土路上，碎石路上和水泥地上。随后又往回走，接着脚步声消失了。从墨一般的海上望过去，远处矗立着一座山的黑影。那儿住着戴弗夫妇。她想象他们俩在一起的情形，仿佛听到他们在轻轻地哼唱一支歌，这支歌犹如冉冉上升的烟云，犹如一支圣歌，回响在久远的年代和遥远的地方。他们的孩子睡着了，他们的大门在夜里关闭了。
  
+Rosemary stood breathless as the voices moved away. She was at first even astonished—she had seen them in their relation to each other as people without personal exigencies—as something cooler. Now a strong current of emotion flowed through her, profound and unidentified. She did not know whether she was attracted or repelled, but only that she was deeply moved. It made her feel very alone as she went back into the restaurant, but it was touching to look in upon, and the passionate gratitude of Nicole's "Oh, do I!" echoed in her mind. The particular mood of the passage she had witnessed lay ahead of her; but however far she was from it her stomach told her it was all right—she had none of the aversion she had felt in the playing of certain love scenes in pictures.
  
+萝丝玛丽大气不出地站在那儿，直到他们的声音渐渐远去。她起初甚至感到震惊，因为从他们相互之间的关系来看，她一直把他们当作那种没有肉体要求的人，当作那种感情冷漠的人。此刻，一股情感的激流流过她的全身，透心而朦胧。她不明白自己是欣羡还是反感，但唯一明白的是她自己被深深地打动了。遇到这种事，确实让人心动，尤其是尼科尔充满激情的话“哦，我爱你！”仍在她心头回响。她现在面临了她目睹的这幕情景的特殊氛围，但不管她与这种氛围的距离有多远，她自己的欲望告诉她，这是正常的——她并没有产生在出演某场爱情戏时常有的厌恶感。
+
+Being far away from it she nevertheless irrevocably participated in it now, and shopping with Nicole she was much more conscious of the assignation than Nicole herself. She looked at Nicole in a new way, estimating her attractions. Certainly she was the most attractive woman Rosemary had ever met—with her hardness, her devotions and loyalties, and a certain elusiveness, which Rosemary, thinking now through her mother's middle-class mind, associated with her attitude about money. Rosemary spent money she had earned—she was here in Europe due to the fact that she had gone in the pool six times that January day with her temperature roving from 99° in the early morning to 103°, when her mother stopped it.
+
+尽管这件事与她无关，但她现在无可避免地参与进去了。当她同尼科尔一起去购物时，她甚至比尼科尔本人更在意这次幽会。她从新的角度来观察尼科尔，估量她的吸引力。当然，她是萝丝玛丽所见过的最有吸引力的女子——她庄重、虔诚、忠实，还有某种令人难以捉摸的东西，这一切萝丝玛丽运用她母亲的中产阶级的思想方式来加以考虑，并把它们同她对金钱的看法联系起来。萝丝玛丽的钱是她自己挣来的——她之所以能在欧洲漫游，因为她在一月的某一天跳入水池六次，那天她的体温从早晨的99度慢慢上升到103度①，这时她母亲出来阻止了她.
+
+
+
+
+
+
