@@ -28,6 +28,17 @@ Being far away from it she nevertheless irrevocably participated in it now, and 
 
 尽管这件事与她无关，但她现在无可避免地参与进去了。当她同尼科尔一起去购物时，她甚至比尼科尔本人更在意这次幽会。她从新的角度来观察尼科尔，估量她的吸引力。当然，她是萝丝玛丽所见过的最有吸引力的女子——她庄重、虔诚、忠实，还有某种令人难以捉摸的东西，这一切萝丝玛丽运用她母亲的中产阶级的思想方式来加以考虑，并把它们同她对金钱的看法联系起来。萝丝玛丽的钱是她自己挣来的——她之所以能在欧洲漫游，因为她在一月的某一天跳入水池六次，那天她的体温从早晨的99度慢慢上升到103度①，这时她母亲出来阻止了她.
 
+With Nicole’s help Rosemary bought two dresses and two hats and four pairs of shoes with her money. Nicole bought from a great list that ran two pages, and bought the things in the windows besides. Everything she liked that she couldn’t possibly use herself, she bought as a present for a friend. She bought colored beads, folding beach cushions, artificial flowers, honey, a guest bed, bags, scarfs, love birds,miniatures for a doll’s house and three yards of some new cloth the color of prawns. She bought a dozen bathing suits, a rubber alligator, a travelling chess set of gold and ivory, big linen handkerchiefs for Abe, two chamois leather jackets of kingfisher blue and burning bush from Hermès— bought all these things not a bit like a high-class courtesan buying underwear and jewels, which were after all professional equipment and insurance—but with an entirely different point of view. Nicole was the product of much ingenuity and toil. For her sake trains began their run at Chicago and traversed the round belly of the continent to California; chicle factories fumed and link belts grew link by link in factories; men mixed toothpaste in vats and drew mouthwash out of copper hogsheads; girls canned tomatoes quickly in August or worked rudely at the Five-and-Tens on Christmas Eve; half-breed Indians toiled on Brazilian coffee plantations and dreamers were muscled out of patent rights in new tractors—these were some of the people who gave a tithe to Nicole, and as the whole system swayed and thundered onward it lent a feverish bloom to such processes of hers as wholesale buying, like the flush of a fireman’s face holding his post before a spreading blaze. She illustrated very simple principles, containing in herself her own doom, but illustrated them so accurately that there was grace in the procedure, and presently Rosemary would try to imitate it.
+
+在尼科尔的指点下，萝丝玛丽用自己的钱买了两套衣服，两顶帽子和四双鞋子。尼科尔按照一份有两张纸的长长的清单采购物品，另外还买了陈列在橱窗里的东西。她买下喜欢的东西，未必都是她自己要用的，她买来是当作礼物送给朋友的。她买了一些彩色的珠子、几块海滩上用的折叠软垫、一些人造花、蜂蜜、一张专供客人用的床、几只包、几条围巾、几只鹦鹉、可摆在玩具房间中的袖珍物品及三码长的对虾色的某种新式布料。她还买了一打泳装、一条橡皮鳄鱼、一副黄金和象牙制成的旅行象棋、给艾贝的大号亚麻手帕、两件羚羊皮夹克，皮夹克的颜色是那种翠鸟灰，皮毛是大红的，这两件皮夹克是从赫尔墨斯商店买来的——她买下这些东西并不能与一个高级妓女的采购相提并论，后者购买内衣和珠宝，说到底是购买职业装备或者说买保险——而尼科尔的采购则是出于一种截然不同的考虑。尼科尔是才智和辛劳的产物。为了她，火车从芝加哥出发，穿过大陆丰腴的腹地，抵达加利福尼亚；胶姆糖工厂在冒烟，工厂的传送带连续运转着；男人们在缸里搅拌牙膏，从铜制的桶里汲取漱口剂；姑娘们在八月里麻利地装着番茄罐头，或在圣诞夜的杂货店里忙得七荤八素；印第安混血儿在巴西的咖啡种植园里辛勤劳作，幻想家不再享有新型拖拉机的专利权了——这只是向尼科尔进贡的一部分人，随着整个体制轰轰隆隆不可一世地向前推进，就给像尼科尔这样进行大量采购的行为推波助澜，那种买卖的亢奋不下于一个面对大火坚守岗位的消防队员的满脸红光。她体现了一些非常朴素的原则，这些原则掩盖了她本人的可悲命运。她对这些原则的体现是如此确切，以致这种买卖行为也显得优雅起来，而现在萝丝玛丽也竭力要加以仿效了。
+
+
+
+
+
+
+
+
 
 
 
