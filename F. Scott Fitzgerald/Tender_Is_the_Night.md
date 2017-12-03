@@ -45,8 +45,27 @@ In the dark cave of the taxi, fragrant with the perfume Rosemary had bought with
 　“晚安，孩子。这真是太遗憾了。事情过去就别放心上了。”他说了这两句医院的口头禅，劝她去睡觉。“会有许多人爱上你的，当你完美无瑕地，包括感情上，迎来你的初恋，该有多好。那是一种旧观念，是吧？”在他向门口跨出一步时，她抬起头来看他。她看着他，丝毫不明白他到底有什么想法。她见他又慢慢地跨出一步，转身看了她一眼。她一时很想抓住他，吞掉他，想要他的嘴、他的耳朵、他的衣领，想要抱住他把他吞吃了。她看见他的手落在门的把手上。这时，她放弃了这个想法，一头倒在床上。当门关上后，她起身走到镜子那儿，开始梳理她的头发，一边微微地抽噎着。萝丝玛丽刷了一百五十下，像往常一样。接着又是一百五十下。她梳着梳着直到手臂发酸，然后又换只手继续流起来……
 
 
+They were meeting the others in two minutes, and Rosemary reconstructed herself once more as they got out of the taxi in the Rue Guynemer, across from the Luxembourg Gardens. They were lunching in the Norths' already dismantled apartment high above the green mass of leaves. The day seemed different to Rosemary from the day before—When she saw him face to face their eyes met and brushed like birds' wings. After that everything was all right, everything was wonderful, she knew that he was beginning to fall in love with her. She felt wildly happy, felt the warm sap of emotion being pumped through her body. A cool, clear confidence deepened and sang in her. She scarcely looked at Dick but she knew everything was all right.
 
+　他们两分钟后要去会其他人，便在卢森堡公园对面的格尼麦大街下了车，萝丝玛丽使自己振作了起来。他们在诺思夫妇的高居于大片绿叶之上的已拆除设备的公寓里吃饭。这一天对萝丝玛丽来说似乎大不同于前一天——当她面对面地看到他时，他们的目光相遇，犹如鸟的翅膀一掠而过。这以后，一切都正常了，一切都美妙起来了。她知道他开始爱上她了。她感到无比的幸福，感到爱的暖流在全身涌动。一种沉稳、清晰的自信在增长，在心头欢乐地歌唱。她几乎不看迪克，但她知道一切都很顺利。
 
+There she was—the school girl of a year ago, hair down her back and rippling out stiffly like the solid hair of a tanagra figure; there she was—so young and innocent—the product of her mother's loving care; there she was—embodying all the immaturity of the race, cutting a new cardboard paper doll to pass before its empty harlot's mind. She remembered how she had felt in that dress, especially fresh and new under the fresh young silk.
 
+她出现在银幕上——那是一年前的她，一副学生模样。头发朝后流着，有关鬈曲着披散开来，就像一尊塔纳格拉陶俑①的硬挺挺的头发。瞧她——多么年轻，多么天真——这是她母亲精心呵护的结果；瞧她——带着少女全部的稚嫩，又在剪一个纸板洋娃娃，足以表现出纯朴少女之心。她还记得她当时穿着那套衣服时的感觉，尤其是穿着那套色彩鲜艳，新做的绸衣服，觉得神清气爽，兴致勃勃——
 
+Daddy's girl. Was it a 'itty-bitty bravekins and did it suffer? Ooo-ooo-tweet, de tweetest thing, wasn't she dest too tweet? Before her tiny fist the forces of lust and corruption rolled away; nay, the very march of destiny stopped; inevitable became evitable, syllogism, dialectic, all rationality fell away. Women would forget the dirty dishes at home and weep, even within the picture one woman wept so long that she almost stole the film away from Rosemary. She wept all over a set that cost a fortune, in a Duncan Phyfe dining-room, in an aviation port, and during a yacht-race that was only used in two flashes, in a subway and finally in a bathroom. But Rosemary triumphed. Her fineness of character, her courage and steadfastness intruded upon by the vulgarity of the world, and Rosemary showing what it took with a face that had not yet become mask-like—yet it was actually so moving that the emotions of the whole row of people went out to her at intervals during the picture. There was a break once and the light went on and after the chatter of applause Dick said to her sincerely: "I'm simply astounded. You're going to be one of the best actresses on the stage."
+
+　老爸的女儿。它是一个小精灵吗？它吃过苦吗？噢——噢，甜蜜的，最甜蜜的小宝贝，她难道不甜蜜吗？在她的小拳头前，淫欲和腐化的力量消失得无影无踪，而且命运的进程停止了，不可避免的成了可避免的，三段论，辩证法，所有的合理性逃逸了。女人在家里忘掉那些脏餐具而哭泣起来，甚至在电影中一个女人哭个不停，差不多喧宾夺主地要把戏从萝丝玛丽那儿抢走了。在耗费大笔资金的一组戏里，她始终哭着。在邓肯-法伊夫餐厅，在机场，在只拍了两个镜头的快艇比赛中，在地铁，最后还在浴室里哭，但萝丝玛丽获胜了。她气质的优雅、她的勇气和镇定尽管会遭到世俗的侵蚀，然而萝丝玛丽用一张还未面具化的脸征服了观众——这部电影也确实感人，以致在放映中，坐在这排位子上的人接二连三地向她传递他们内心的激动。放映中曾有一次停顿，灯亮起来了，一阵掌声过后，迪克真诚地对她说：“我简直吃惊，你会成为银幕上最出色的演员。”
+ 
+They looked at each other at last, murmuring names that were a spell. Softly the two names lingered on the air, died away more slowly than other words, other names, slower than music in the mind.
+ 
+他们最终四目相对，念咒语般地低声呼唤着对方的名字。他俩的名字在夜色中轻柔低回，比其他的字眼，其他的名目留存得更长久，比心中的乐曲更为舒缓。
+ 
+Again the names—then they lurched together as if the taxi had swung them. Her breasts crushed flat against him, her mouth was all new and warm, owned in common. They stopped thinking with an almost painful relief, stopped seeing; they only breathed and sought each other. They were both in the gray gentle world of a mild hangover of fatigue when the nerves relax in bunches like piano strings, and crackle suddenly like wicker chairs. Nerves so raw and tender must surely join other nerves, lips to lips, breast to breast… .
+ 
+又念叨起对方的名字来——随后他们倒在一起，像是汽车颠了他们一下似的。她的胸脯紧贴着他，她的嘴唇是那么鲜嫩温馨，此刻它属于他们俩。他们感到一种几乎是痛苦的畅快，不再想什么，不再看什么。他们只是气息相通，身躯相拥。当全身的神经像钢琴的弦那样渐渐松弛下来，像柳条椅那样突然吱吱嘎嘎发出声响，他们俩都处在一种难以言说的、轻微的疲乏状态之中。此时他们的神经是如此敏感娇嫩，势必要得到对方的呼应，于是，嘴咬着嘴，胸贴着胸……
+ 
+They were still in the happier stage of love. They were full of brave illusions about each other, tremendous illusions, so that the communion of self with self seemed to be on a plane where no other human relations mattered. They both seemed to have arrived there with an extraordinary innocence as though a series of pure accidents had driven them together, so many accidents that at last they were forced to conclude that they were for each other. They had arrived with clean hands, or so it seemed, after no traffic with the merely curious and clandestine.
+ 
+他们仍沉溺于爱的欢欣之中。他们都对对方抱着大胆的幻想，无数的幻想，因而这一个自我与那一个自我的沟通似乎是在一个同其他人类关系不相干的地方进行的。他们似乎不明不白地来到此地，仿佛是一系列纯粹偶然的事件驱使他们走到了一起，竟有这么多偶然事件，以致到最后他们不得不得出结论，他们都是为对方而来的。他们清清白白来到这儿，或者说看起来像是这样，事先并没有仅出于好奇或偷偷相会过。
 
