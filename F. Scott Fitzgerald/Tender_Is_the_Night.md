@@ -32,9 +32,9 @@ With Nicole’s help Rosemary bought two dresses and two hats and four pairs of 
 
 在尼科尔的指点下，萝丝玛丽用自己的钱买了两套衣服，两顶帽子和四双鞋子。尼科尔按照一份有两张纸的长长的清单采购物品，另外还买了陈列在橱窗里的东西。她买下喜欢的东西，未必都是她自己要用的，她买来是当作礼物送给朋友的。她买了一些彩色的珠子、几块海滩上用的折叠软垫、一些人造花、蜂蜜、一张专供客人用的床、几只包、几条围巾、几只鹦鹉、可摆在玩具房间中的袖珍物品及三码长的对虾色的某种新式布料。她还买了一打泳装、一条橡皮鳄鱼、一副黄金和象牙制成的旅行象棋、给艾贝的大号亚麻手帕、两件羚羊皮夹克，皮夹克的颜色是那种翠鸟灰，皮毛是大红的，这两件皮夹克是从赫尔墨斯商店买来的——她买下这些东西并不能与一个高级妓女的采购相提并论，后者购买内衣和珠宝，说到底是购买职业装备或者说买保险——而尼科尔的采购则是出于一种截然不同的考虑。尼科尔是才智和辛劳的产物。为了她，火车从芝加哥出发，穿过大陆丰腴的腹地，抵达加利福尼亚；胶姆糖工厂在冒烟，工厂的传送带连续运转着；男人们在缸里搅拌牙膏，从铜制的桶里汲取漱口剂；姑娘们在八月里麻利地装着番茄罐头，或在圣诞夜的杂货店里忙得七荤八素；印第安混血儿在巴西的咖啡种植园里辛勤劳作，幻想家不再享有新型拖拉机的专利权了——这只是向尼科尔进贡的一部分人，随着整个体制轰轰隆隆不可一世地向前推进，就给像尼科尔这样进行大量采购的行为推波助澜，那种买卖的亢奋不下于一个面对大火坚守岗位的消防队员的满脸红光。她体现了一些非常朴素的原则，这些原则掩盖了她本人的可悲命运。她对这些原则的体现是如此确切，以致这种买卖行为也显得优雅起来，而现在萝丝玛丽也竭力要加以仿效了。
 
+"Good night, dear Dick." Mary smiled as if she were going to be perfectly happy sitting there on the almost deserted boat. She was a brave, hopeful woman and she was following her husband somewhere, changing herself to this kind of person or that, without being able to lead him a step out of his path, and sometimes realizing with discouragement how deep in him the guarded secret of her direction lay. And yet an air of luck clung about her, as if she were a sort of token … .
 
-
-
+　“晚安，亲爱的迪克。”玛丽微笑着，好像她坐在这条空荡荡的船上会十分地快活。她是个勇敢的、有前途的女子，从某些方面来说她追随她的丈夫，改变自己来适应这种人或那种人，而并不能够让他偏离他的道路一步。有时她沮丧地意识到，她秘而不宣的自己的前程已深深地寄放在他的身上了，然而她身上有一股吉祥之气，仿佛她是一种象征…
 
 
 
