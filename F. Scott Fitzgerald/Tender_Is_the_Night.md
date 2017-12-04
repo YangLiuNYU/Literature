@@ -69,3 +69,59 @@ They were still in the happier stage of love. They were full of brave illusions 
  
 他们仍沉溺于爱的欢欣之中。他们都对对方抱着大胆的幻想，无数的幻想，因而这一个自我与那一个自我的沟通似乎是在一个同其他人类关系不相干的地方进行的。他们似乎不明不白地来到此地，仿佛是一系列纯粹偶然的事件驱使他们走到了一起，竟有这么多偶然事件，以致到最后他们不得不得出结论，他们都是为对方而来的。他们清清白白来到这儿，或者说看起来像是这样，事先并没有仅出于好奇或偷偷相会过。
 
+
+Afterward she remembered the times when she had felt the happiest. The first time was when she and Dick danced together and she felt her beauty sparkling bright against his tall, strong form as they floated, hovering like people in an amusing dream—he turned her here and there with such a delicacy of suggestion that she was like a bright bouquet, a piece of precious cloth being displayed before fifty eyes. There was a moment when they were not dancing at all, simply clinging together. Some time in the early morning they were alone, and her damp powdery young body came up close to him in a crush of tired cloth, and stayed there, crushed against a background of other people's hats and wraps… 
+
+日后她回忆起她感到的那些最幸福的时刻。第一次是她和迪克一起跳舞。他高大健壮，她则妩媚，光彩照人。他们翩翩起舞，犹如在甜蜜的梦幻中倘佯——他带着她满场子转，巧妙地向人暗示，她就像一束艳丽的鲜花，一块华贵的布料展现在那二十五个人眼前。有一刻，他们似乎停下来不再跳舞，只是紧紧地偎依在一起。清晨的某个时辰，他们单独呆着，她汗津津的搽过粉的娇躯紧贴着他，他的衣服被揉得皱巴巴的，他们在挂着别人的帽子和外套的地方拥抱…
+
+They stood in an uncomfortable little group weighted down by Abe's gigantic presence: he lay athwart them like the wreck of a galleon, dominating with his presence his own weakness and self-indulgence, his narrowness and bitterness. All of them were conscious of the solemn dignity that flowed from him, of his achievement, fragmentary, suggestive and surpassed. But they were frightened at his survivant will, once a will to live, now become a will to die.
+
+　这一群人站在那儿，由于艾贝高大的身躯而显得有些不协调。他背对着她们，活像一艘古代大帆船的残骸。他倚仗这高大的身躯来制约他的软弱，他的自我放纵，他的褊狭和他的痛苦。她们都能感受到从他身上透露出来的那种高贵的气质，都清楚他取得的成就，他的成就是断断续续的，有启发性的，当然已被人超越了，但是，她们担惊受怕的还是他尚存的那种意愿，过去这是一种去活的意愿，而如今变成了一种去死的意愿。
+ 
+He knew that what he was now doing marked a turning point in his life—it was out of line with everything that had preceded it—even out of line with what effect he might hope to produce upon Rosemary. Rosemary saw him always as a model of correctness—his presence walking around this block was an intrusion. But Dick's necessity of behaving as he did was a projection of some submerged reality: he was compelled to walk there, or stand there, his shirt-sleeve fitting his wrist and his coat sleeve encasing his shirt-sleeve like a sleeve valve, his collar molded plastically to his neck, his red hair cut exactly, his hand holding his small briefcase like a dandy—just as another man once found it necessary to stand in front of a church in Ferrara, in sackcloth and ashes. Dick was paying some tribute to things unforgotten, unshriven, unexpurgated.
+ 
+他知道他眼下所做的将是他生活中一个转折点——它不同于先前所做的一切，甚至也不同于他希望在萝丝玛丽身上产生的结果。萝丝玛丽总是把他视作正确的榜样——他此刻在这段地区走来走去简直是一种侵犯，但迪克这一行为的必要性，是某种内部现实的反映：他是情不自禁地去那儿，或站在那儿的——他的衬衫袖口正好垂到手腕，他外衣的袖口像阀门似的正好包住衬衫袖口，衣服的衣领贴着他的脖颈；他的头发修剪整齐，他手拎着小巧的公文包，俨然一个花花公子——就像是另一个人觉得有必要站在费拉拉①的教堂前，悲痛地仟悔。或许迪克正在对尚未忘怀、尚未忏悔、尚未处理的事情祷告吧——
+
+After three-quarters of an hour of standing around, he became suddenly involved in a human contact. It was just the sort of thing that was likely to happen to him when he was in the mood of not wanting to see any one. So rigidly did he sometimes guard his exposed self-consciousness that frequently he defeated his own purposes; as an actor who underplays a part sets up a craning forward, a stimulated emotional attention in an audience, and seems to create in others an ability to bridge the gap he has left open. Similarly we are seldom sorry for those who need and crave our pity—we reserve this for those who, by other means, make us exercise the abstract function of pity.
+
+他在那儿逗留了三刻钟，之后他突然与别人有了接触，这正是那种对他来说极有可能发生的事，尤其当他处于不想见任何人的心境。他有时固执地保护着他易受伤害的自我意识，以致他常常挫败自己的意图。这就像一个演技拙劣的演员，故意弄出一个悬念，以刺激观众的情感，吸引他们的注意，以便使他人产生一种能力来填补他留下的空白。同样，我们很少对需要和乞求我们怜悯的人表示同情——我们将同情保留给那些人，他们以不同的方式让我们体验到怜悯的抽象功能。
+
+Back at two o'clock in the Roi George corridor the beauty of Nicole had been to the beauty of Rosemary as the beauty of Leonardo's girl was to that of the girl of an illustrator. Dick moved on through the rain, demoniac and frightened, the passions of many men inside him and nothing simple that he could see.
+
+　回想下午两点时，在乔治王旅馆的阳台上，尼科尔的美丽辉映着萝丝玛丽的美丽，犹如达-芬奇的蒙娜丽莎对应插图画家笔下的美人。迪克在雨中前行，心神狂乱，惊惧不定，他内心翻腾着许多男子的激情，他明白事情不会简单。
+ 
+Rosemary opened her door full of emotions no one else knew of. She was now what is sometimes called a "little wild thing"—by twenty-four full hours she was not yet unified and she was absorbed in playing around with chaos; as if her destiny were a picture puzzle—counting benefits, counting hopes, telling off Dick, Nicole, her mother, the director she met yesterday, like stops on a string of beads.
+
+萝丝玛丽怀着一种无人知晓的柔情打开了房门。她现在成了人们有时所说的一个“狂热的小东西”——已经有二十四小时了，她还有点魂不守舍。她全力应付周边的混乱，仿佛她的命运就是一副拼图玩具——清点收益，清点希望，指派迪克和尼科尔、她母亲，还有她昨天认识的那个导游，就像是立足于命运的丝线上。
+
+When Dick knocked she had just dressed and been watching the rain, thinking of some poem, and of full gutters in Beverly Hills. When she opened the door she saw him as something fixed and Godlike as he had always been, as older people are to younger, rigid and unmalleable. Dick saw her with an inevitable sense of disappointment. It took him a moment to respond to the unguarded sweetness of her smile, her body calculated to a millimeter to suggest a bud yet guarantee a flower. He was conscious of the print of her wet foot on a rug through the bathroom door.
+
+当迪克敲门时，她刚穿戴整齐，一边注视着窗外的雨，一边想起一首小诗和贝弗利希尔斯①积满雨水的水沟。她打开门，看见他像往常一样。在她眼里，他始终如一，像一尊天神，这就如同在年轻人看来，一个老年人永远是刻板僵化的。迪克见到她则产生了一种难以抑制的失望。他没有马上对她的坦然和甜甜的微笑做出反应，她身体极为匀称，此时就像一个花蕾，日后必定绽放出一朵花花来。他注意到通向浴室的地毯上有她湿湿的一溜脚印——
+
+"Miss Television," he said with a lightness he did not feel. He put his gloves, his brief-case on the dressing-table, his stick against the wall. His chin dominated the lines of pain around his mouth, forcing them up into his forehead and the corner of his eyes, like fear that cannot be shown in public.
+
+"Come and sit on my lap close to me," he said softly, "and let me see about your lovely mouth."
+She came over and sat there and while the dripping slowed down outside—drip—dri-i-ip, she laid her lips to the beautiful cold image she had created.
+
+Presently she kissed him several times in the mouth, her face getting big as it came up to him; he had never seen anything so dazzling as the quality of her skin, and since sometimes beauty gives back the images of one's best thoughts he thought of his responsibility about Nicole, and of the responsibility of her being two doors down across the corridor.
+
+"电视小姐。”他故作轻松地打趣道。他把他的手套、公文包放在梳妆台上，手杖靠在墙边。他的下巴控制着他嘴角的痛苦的线条，使它们像个宜表露露的恐惧一样爬上他的额头和眼角。
+
+“过来，坐在我的腿上，”他温柔地说，“让我看看你可爱的小嘴。”
+
+她走过来，坐在他的腿上，此时窗外的雨水渐渐慢下来了——滴答——滴答，她将嘴唇贴在她勾画出来的美丽而又冷漠的形象上。
+
+此时。她在他嘴上吻了几下，她凑向他时，他觉得她的脸那么丰润，他从未见过有什么东西她凝脂般的肌肤那样令人目眩。有时候，美丽使人产生最高尚的思想，他这时就想起了对尼科尔的责任，想起她就可能性在走廊对面隔着两个房门的房间里。
+
+
+
+
+
+
+
+
+
+
+
+
+
