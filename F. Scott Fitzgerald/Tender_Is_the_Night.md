@@ -173,7 +173,15 @@ Suddenly there was a booming from the wine slopes across the lake; cannons were 
 
 　　突然，湖对面暗红色的山坡上传来一声轰响，人们正在向酝酿冰雹的云层开炮，以便驱散它们。他们散步的地方的灯灭了一下，又亮了起来。这时，暴风雨急速地卷了过来，先是从天上倾泻而下，随后挨着山洪奔腾而来，淹没了道路，灌满了石砌的沟渠。天空一片漆黑、异常恐怖，丝状闪电划破夜空，隆隆雷声震天动地。形态狰狞的乱云掠过旅馆。山峰和湖泊都湮没了——旅馆蜷缩在喧闹、混乱和黑暗之中。
   
-  
+Baby was a tall, fine-looking woman, deeply engaged in being almost thirty. Symptomatically she had pulled two men with her from London, one scarcely down from Cambridge, one old and hard with Victorian lecheries. Baby had certain spinsters' characteristics—she was alien from touch, she started if she was touched suddenly, and such lingering touches as kisses and embraces slipped directly through the flesh into the forefront of her consciousness. She made few gestures with her trunk, her body proper—instead, she stamped her foot and tossed her head in almost an old-fashioned way. She relished the foretaste of death, prefigured by the catastrophes of friends—persistently she clung to the idea of Nicole's tragic destiny.
+
+巴比是个身材修长，面容姣好的女子，有着快到三十岁年龄的种种气象。她显然从伦敦拉了两个男子跟着她，一个刚从剑桥来，一个则是有维多利亚遗风的老古板。巴比有老处女的一些特性——她不习惯被人触摸，要是有人突然碰了她一下，她会惊跳起来，像接吻和拥抱这类缠绵的接触，会通过皮肉直接传导到她的意识的表层，她很少用她的身体做出合适的姿态——相反，她几乎用一种老派的方式跺脚和晃头。她津津乐道朋友们因不幸而预尝到死亡的滋味——她坚持认为尼科尔的悲剧是她的命。
+
+He was forty. Upon his healthy maturity reposed a set of pleasant official manners, but he was most at home in a somewhat stuffy safety from which he could despise the broken rich whom he re-educated. His scientific heredity might have bequeathed him a wider world but he seemed to have deliberately chosen the standpoint of an humbler class, a choice typified by his selection of a wife. At the hotel Baby Warren made a quick examination of him, and failing to find any of the hall-marks she respected, the subtler virtues or courtesies by which the privileged classes recognized one another, treated him thereafter with her second manner. Nicole was always a little afraid of him. Dick liked him, as he liked his friends, without reservations.
+
+他四十岁，有健康成熟的外表，也有一套讨人喜欢的体面的处世方式，然而，他最感到自在的还是某种平稳的安定状态，在这种状态下，他可以鄙视那些他给予再教育的精神崩溃的富人。他的科学禀赋也许可以给他拓展更宽广的世界，但他似乎有意选择下层社会作为立足点，他择偶的行为就表明了这种选择。在旅馆，巴比-沃伦将他草草地审视了一番，没有发现任何值得敬重的特征，也没有找到特权阶层彼此认可的那种更为雅致的美德或谦恭有礼的举止，因而，她把他当作二等人物来对待。尼科尔总有点怕他。迪克喜欢他，就像喜欢朋友一样，对他毫无保留。
+
+
 
 
 
