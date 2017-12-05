@@ -145,7 +145,35 @@ He was enough older than Nicole to take pleasure in her youthful vanities and de
  
  尼科尔一脸欢欣——成为一片羽毛而不是一只铅锤，往下飘而不是往下坠。她犹如一台让人观赏的狂欢演出，时而拘泥腼腆，装模作样；时而又挤眉弄眼，手舞足蹈——有时，阴影降临，往日受难的高贵气血。直流注到她的指尖。迪克希望自己远远离开她，担心他会让人想起那个抛在身后的世界。他打定主意住另一家旅馆。
  
- 
+ The voice fell low, sank into her breast and stretched the tight bodice over her heart as she came up close. He felt the young lips, her body sighing in relief against the arm growing stronger to hold her. There were now no more plans than if Dick had arbitrarily made some indissoluble mixture, with atoms joined and inseparable; you could throw it all out but never again could they fit back into atomic scale. As he held her and tasted her, and as she curved in further and further toward him, with her own lips, new to herself, drowned and engulfed in love, yet solaced and triumphant, he was thankful to have an existence at all, if only as a reflection in her wet eyes.
+
+"My God," he gasped, "you're fun to kiss."
+
+That was talk, but Nicole had a better hold on him now and she held it; she turned coquette and walked away, leaving him as suspended as in the funicular of the afternoon. She felt: There, that'll show him, how conceited; how he could do with me; oh, wasn't it wonderful! I've got him, he's mine. Now in the sequence came flight, but it was all so sweet and new that she dawdled, wanting to draw all of it in.
+
+She shivered suddenly. Two thousand feet below she saw the necklace and bracelet of lights that were Montreux and Vevey, beyond them a dim pendant of Lausanne. From down there somewhere ascended a faint sound of dance music. Nicole was up in her head now, cool as cool, trying to collate the sentimentalities of her childhood, as deliberate as a man getting drunk after battle. But she was still afraid of Dick, who stood near her, leaning, characteristically, against the iron fence that rimmed the horseshoe; and this prompted her to say: "I can remember how I stood waiting for you in the garden--holding all my self in my arms like a basket of flowers. It was that to me anyhow--I thought I was sweet--waiting to hand that basket to you."
+
+He breathed over her shoulder and turned her insistently about; she kissed him several times, her face getting big every time she came close, her hands holding him by the shoulders.
+
+"It's raining hard."
+
+Suddenly there was a booming from the wine slopes across the lake; cannons were shooting at hail-bearing clouds in order to break them. The lights of the promenade went off, went on again. Then the storm came swiftly, first falling from the heavens, then doubly falling in torrents from the mountains and washing loud down the roads and stone ditches; with it came a dark, frightening sky and savage filaments of lightning and world-splitting thunder, while ragged, destroying clouds fled along past the hotel. Mountains and lake disappeared--the hotel crouched amid tumult, chaos and darkness.
+
+她凑上来时，说话声变低了，仿佛沉人她的胸怀，绷紧了她胸口的紧身胸衣。他感到了她娇嫩的嘴唇，她的身体如释重负地靠着他越来越有力地搂住她的手臂。即使迪克配制出某种不可溶解的混合剂，也莫过于眼前这情形了，就像是原子结合在一起，难解难分。你可以将它们统统扔掉，但休想让它们再回复到原子状态。他抱住她，感受着她青春的美好。她越来越紧地依偎着他，她自己的嘴唇也给她带来前所未有的新感觉，她沉浸、淹没在爱的激情之中，然而又显得志得意满。他则为能遭遇这样一种激情而感到庆幸，虽然这只是从她湿润的眼中反映出来的。
+
+　　“天哪，”他喘口气说，“跟你亲吻真是美妙。”
+
+　　这还中听，但尼科尔此时占了他的上风，她抓住这个机会。她卖弄风情似的转身走开，就像今天下午在缆车站一样，撇下他一脸茫然。她感到，这样就可以向他表明，他多么自负，他如何能配得上我。哦，这难道不是很美妙吗？我得到了他，他是我的。此时，她自然是飘飘然了，但这一切是多么地甜蜜和新鲜，她不禁要流连再三，恨不得全部纳入胸怀。
+
+　　她猛地打了个冷战。她眺望着两千英尺远的山下灯火闪烁，犹如发光的项链和手镯的，那是蒙特勒和沃韦市。在它们后面，朦胧的是像挂件似的洛桑市。山下隐约传来舞会的音乐声。尼科尔打定主意，冷静下来，想要审视一下童年时的多愁善感，显得像一个打完架的人喝得酩酊大醉那样潇潇洒洒，但她仍然惧怕迪克，他就站在她身边，以一种独特的方式倚在马蹄形小径围起来的铁栏杆上。她见此情景便说，“我能记得我当时是怎样站在花园里等候你的——我的整个生命，如同一篮鲜花，被我捧在怀里。不管怎样，我那时就是这样的心情——我觉得，我一片真情——等着把花篮献给你。”
+
+　　他吻着她的肩膀，执拗地要她转过身来。她一连吻了他几次，每当她凑上来，她的脸就越加丰腴起来，她搂着他的双肩。
+
+　　“雨下大了。”
+
+　　突然，湖对面暗红色的山坡上传来一声轰响，人们正在向酝酿冰雹的云层开炮，以便驱散它们。他们散步的地方的灯灭了一下，又亮了起来。这时，暴风雨急速地卷了过来，先是从天上倾泻而下，随后挨着山洪奔腾而来，淹没了道路，灌满了石砌的沟渠。天空一片漆黑、异常恐怖，丝状闪电划破夜空，隆隆雷声震天动地。形态狰狞的乱云掠过旅馆。山峰和湖泊都湮没了——旅馆蜷缩在喧闹、混乱和黑暗之中。
+  
+  
 
 
 
