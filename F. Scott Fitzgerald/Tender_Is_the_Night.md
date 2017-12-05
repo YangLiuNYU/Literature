@@ -113,7 +113,39 @@ Presently she kissed him several times in the mouth, her face getting big as it 
 
 此时。她在他嘴上吻了几下，她凑向他时，他觉得她的脸那么丰润，他从未见过有什么东西她凝脂般的肌肤那样令人目眩。有时候，美丽使人产生最高尚的思想，他这时就想起了对尼科尔的责任，想起她就可能性在走廊对面隔着两个房门的房间里。
 
+The veranda of the central building was illuminated from open French windows, save where the black shadows of stripling walls and the fantastic shadows of iron chairs slithered down into a gladiola bed. From the figures that shuffled between the rooms Miss Warren emerged first in glimpses and then sharply when she saw him; as she crossed the threshold her face caught the room's last light and brought it outside with her. She walked to a rhythm--all that week there had been singing in her ears, summer songs of ardent skies and wild shade, and with his arrival the singing had become so loud she could have joined in with it.
 
+从敞开着的落地长窗透出的灯光照亮了中心大楼的走廊，只有一条条墙的暗影和铁制椅子的古怪影子叠合着投到菖蒲属植物的花坛上。从那些在房间之间拖着步子行走的人当中，出现了沃伦小姐的身影，先还模模糊糊，随后她看见了迪克，她的身影也十分清晰了。她跨过门槛时，她的脸被房间里射出的光线照亮了。她随身把光线也带到了室外。她走路很有节奏——一个星期来，她耳朵里老是响着歌声，那有着炽热的天空和浓密的树阴的夏日的歌。当他到来时，这歌声是如此的嘹亮，她可以应和着唱出来了。
+
+Within the building a trio broke into Suppe's "Light Cavalry." Nicole took advantage of this to stand up and the impression of her youth and beauty grew on Dick until it welled up inside him in a compact paroxysm of emotion. She smiled, a moving childish smile that was like all the lost youth in the world.
+
+　大楼里响起了苏佩①的三重奏《轻骑兵》。尼科尔乘机站起身来，她年轻美丽的身体给迪克留下越来越强烈的印象。他顿时心潮澎湃。她微笑起来，这是一种动人的孩子般的笑，就像世界上所有那些失落了的青春一般可爱—
+ 
+ Her cream-colored dress, alternately blue or gray as they walked, and her very blonde hair, dazzled Dick--whenever he turned toward her she was smiling a little, her face lighting up like an angel's when they came into the range of a roadside arc. She thanked him for everything, rather as if he had taken her to some party, and as Dick became less and less certain of his relation to her, her confidence increased--there was that excitement about her that seemed to reflect all the excitement of the world.
+
+"I'm not under any restraint at all," she said. "I'll play you two good tunes called 'Wait Till the Cows Come Home' and 'Good-by, Alexander.'"
+
+He was late the next time, a week later, and Nicole was waiting for him at a point in the path which he would pass walking from Franz's house. Her hair drawn back of her ears brushed her shoulders in such a way that the face seemed to have just emerged from it, as if this were the exact moment when she was coming from a wood into clear moonlight. The unknown yielded her up; Dick wished she had no background, that she was just a girl lost with no address save the night from which she had come. They went to the cache where she had left the phonograph, turned a corner by the workshop, climbed a rock, and sat down behind a low wall, facing miles and miles of rolling night.
+
+　他们一路散着步，她那套奶色衣服一会现出蓝色，一会又成了灰色。她的一头金发颇使迪克眼花——每当他转过脸来，她总是嫣然一笑。他们走进路边一座拱形凉亭时，她容光焕发，犹如一位天使。她感谢他为她做的一切，就好像是他带她参加了一个晚会。当迪克对他们之间的关系越来越感到没有把握的时候，她的信心却在增长——她神采飞扬，似乎整个世界也骚动兴奋起来。
+
+　　“我不用受什么约束了，”她说，“我给你放两支好歌，叫做《等到牛群回家》和《再见，亚历山大》。”
+
+　　一星期后，第二次约会他去晚了，尼科尔在他从弗朗茨家里出来经过的路上等他。她的头发拢在耳后，披在肩上，这式样使她的脸显得像是刚从秀发中钻出来一样，就如同此时此刻，她从树林中走出来到皎洁的月光之下。一个无人知晓的东西造就了她。迪克希望她没有背景，她只是一个不知如何回家的迷途姑娘，有的只是她身后的那片黑暗。他们朝她藏唱片的地方走去，在工作间附近拐个弯，爬上一块岩石，在一堵矮墙后边坐了下来，面对着茫茫夜色。
+  
+He was enough older than Nicole to take pleasure in her youthful vanities and delights, the way she paused fractionally in front of the hall mirror on leaving the restaurant, so that the incorruptible quicksilver could give her back to herself. He delighted in her stretching out her hands to new octaves now that she found herself beautiful and rich. He tried honestly to divorce her from any obsession that he had stitched her together--glad to see her build up happiness and confidence apart from him; the difficulty was that, eventually, Nicole brought everything to his feet, gifts of sacrificial ambrosia, of worshipping myrtle.
+
+　他比她年长许多，能够欣赏她那种少女的虚荣和乐趣，欣赏她离开餐馆时在门厅的的镜子前驻足顾盼的模样，觉得这种清纯多变的习性能够让她回复她的本来面貌。眼下她知道自己既美丽又富有，因而手舞足蹈起来，迪克也为此感到高兴。他真诚地想要她摆脱任何这种想法，即他挽救了她——乐于看到她无需依赖他而获得幸福和自信。问题在于，尼科尔最终将一切当作祭神用的供品和爱神的木堆放在他跟前。
+ 
+ Her face, ivory gold against the blurred sunset that strove through the rain, had a promise Dick had never seen before: the high cheek-bones, the faintly wan quality, cool rather than feverish, was reminiscent of the frame of a promising colt--a creature whose life did not promise to be only a projection of youth upon a grayer screen, but instead, a true growing; the face would be handsome in middle life; it would be handsome in old age: the essential structure and the economy were there.
+ 
+ 在穿过蒙蒙细雨的淡淡的夕阳的映照下。她象牙般白皙的面颊上镀上一层金色，洋溢着一种迪克以前从未见过的希望之光。她高高的颧骨，略显苍白的脸色，沉静而非狂热的神情，这些都让人想起一个充满希望的新手的轮廓——这样一个尤物，其生命所展示的不只是灰色屏幕上的青存的投影，而是一种真正的成长。即使人到中年这张脸还是美丽的，即使垂垂老矣这张脸也不会丑陋，因为有基本的脸架子和匀称的五官在那儿。
+ 
+ The delight in Nicole's face--to be a feather again instead of a plummet, to float and not to drag. She was a carnival to watch--at times primly coy, posing, grimacing and gesturing--sometimes the shadow fell and the dignity of old suffering flowed down into her finger tips. Dick wished himself away from her, fearing that he was a reminder of a world well left behind. He resolved to go to the other hotel.
+ 
+ 尼科尔一脸欢欣——成为一片羽毛而不是一只铅锤，往下飘而不是往下坠。她犹如一台让人观赏的狂欢演出，时而拘泥腼腆，装模作样；时而又挤眉弄眼，手舞足蹈——有时，阴影降临，往日受难的高贵气血。直流注到她的指尖。迪克希望自己远远离开她，担心他会让人想起那个抛在身后的世界。他打定主意住另一家旅馆。
+ 
+ 
 
 
 
