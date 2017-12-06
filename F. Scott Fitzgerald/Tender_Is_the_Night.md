@@ -209,6 +209,14 @@ Yet in the awful majesty of her pain he went out to her unreservedly, almost sex
 
 但在她那种令人敬畏的深厚的痛苦面前，他又对她满怀同情，几乎是一种怜爱之情。他想把她搂在怀里，就像他常常搂住尼科尔一样，他甚至欣赏她的缺陷，因为这缺陷是深藏于她体内的一部分。橙黄色的光线透过窗帘，照到床上她那犹如石棺般的躯体，她的脸庞，她的声音好像在探究她疾病背后的那片虚空，所得到的只是一片虚无缥缈的思绪。
  
+A wave of agony went over him. It was awful that such a fine tower should not be erected, only suspended, suspended from him. Up to a point that was right: men were for that, beam and idea, girder and logarithm; but somehow Dick and Nicole had become one and equal, not opposite and complementary; she was Dick too, the drought in the marrow of his bones. He could not watch her disintegrations without participating in them. His intuition rilled out of him as tenderness and compassion—he could only take the characteristically modern course, to interpose—he would get a nurse from Zurich, to take her over to-night.
+
+他感到一阵揪心的痛楚，这多可怕。一个如此娇美的身躯竟然站立不住，只能吊着，吊在他身上。在一定程度上这又是对的，男人就得这样：挑大梁、拿主意、当家理财。然而在某种意义上，迪克和尼科尔已成为一体的、平等的，既不是对立的，又不是互补的。她就是迪克，是他骨子里的伤痛，他不可能旁观她精神崩溃而无动于衷，他天生的温情和怜悯从心底汩汩流出——他只能采取具有现代特征的步骤：干预疗法——他打算从苏黎世雇一个护士，今晚就照料她。
+
+Dick tried to rest—the struggle would come presently at home and he might have to sit a long time, restating the universe for her. A "schizophrêne" is well named as a split personality—Nicole was alternately a person to whom nothing need be explained and one to whom nothing could be explained. It was necessary to treat her with active and affirmative insistence, keeping the road to reality always open, making the road to escape harder going. But the brilliance, the versatility of madness is akin to the resourcefulness of water seeping through, over and around a dike. It requires the united front of many people to work against it. He felt it necessary that this time Nicole cure herself; he wanted to wait until she remembered the other times, and revolted from them. In a tired way, he planned that they would again resume the régime relaxed a year before.
+
+迪克想要歇一会——他知道一回家就会有争执，他也许要花费很多时间，把事情整个儿向她细细解释。一个“精神分裂症患者”有理由被称为人格分裂者——尼科尔是这样一个人，要么无需解释，要么无法解释，所以需要以一种积极和肯定的持之以恒的方式对待她，对她现实的道路永远敞开，使逃避之路难以通行。然而伴随着疯狂而出现的才思敏捷，多才多艺就如同丰沛的雨水渗进、漫过和冲刷着堤坝。这需要许多人的齐心协力的配合。他觉得这一次尼科尔需要自我治疗。他准备等待，直到她回忆起先前的经历并感到厌恶。他煞费苦心地筹划，想重新采用一年前放松下来的饮食节制疗法。
+
 
 
 
