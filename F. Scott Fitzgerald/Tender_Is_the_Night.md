@@ -181,7 +181,34 @@ He was forty. Upon his healthy maturity reposed a set of pleasant official manne
 
 他四十岁，有健康成熟的外表，也有一套讨人喜欢的体面的处世方式，然而，他最感到自在的还是某种平稳的安定状态，在这种状态下，他可以鄙视那些他给予再教育的精神崩溃的富人。他的科学禀赋也许可以给他拓展更宽广的世界，但他似乎有意选择下层社会作为立足点，他择偶的行为就表明了这种选择。在旅馆，巴比-沃伦将他草草地审视了一番，没有发现任何值得敬重的特征，也没有找到特权阶层彼此认可的那种更为雅致的美德或谦恭有礼的举止，因而，她把他当作二等人物来对待。尼科尔总有点怕他。迪克喜欢他，就像喜欢朋友一样，对他毫无保留。
 
+As he sat on the side of his bed, he felt the room, the house and the night as empty. In the next room Nicole muttered something desolate and he felt sorry for whatever loneliness she was feeling in her sleep. For him time stood still and then every few years accelerated in a rush, like the quick re-wind of a film, but for Nicole the years slipped away by clock and calendar and birthday, with the added poignance of her perishable beauty.
 
+他坐在床边，觉得这房间，整幢房子，连同黑夜是一片虚空。隔壁房间，尼科尔发出一阵凄凉的嘟哝声。他为她睡梦中感受到的孤苦无助而难过。他觉得时间停滞了，接着每过几年，时间又冲刺般地加速起来，犹如电影的快速倒片一般。而对尼科尔来说，岁月是通过钟表、日历和生日消逝的，而与日俱增的是对美貌已去的哀伤。
+
+Even this past year and a half on the Zugersee seemed wasted time for her, the seasons marked only by the workmen on the road turning pink in May, brown in July, black in September, white again in Spring. She had come out of her first illness alive with new hopes, expecting so much, yet deprived of any subsistence except Dick, bringing up children she could only pretend gently to love, guided orphans. The people she liked, rebels mostly, disturbed her and were bad for her—she sought in them the vitality that had made them independent or creative or rugged, sought in vain—for their secrets were buried deep in childhood struggles they had forgotten. They were more interested in Nicole's exterior harmony and charm, the other face of her illness. She led a lonely life owning Dick who did not want to be owned.
+
+Many times he had tried unsuccessfully to let go his hold on her. They had many fine times together, fine talks between the loves of the white nights, but always when he turned away from her into himself he left her holding Nothing in her hands and staring at it, calling it many names, but knowing it was only the hope that he would come back soon.
+
+即使对在楚格湖的这一年半的生活，她也觉得是虚度时光，只有走在路上的工人的衣着才稍许表现出季节的变换：他们五月穿粉红色衣服，七月是棕色，九月黑色，春天时又穿上白色衣服。她怀着新的希望，挺过了第一次的发病，心中有着许多的期盼，然而除了迪克，任何维系生存的东西都被剥夺了。抚养孩子，她也只是装出疼爱的样子，只当他们是被指导的孤儿。她喜欢的人，多半是一些放荡不羁的人，他们打扰她的生活，对她并无好处——她在他们身上寻找那曾使他们具有独立精神或创造才能或坚强意志的生命活力，但这种寻找是徒劳的——因为他们的秘密已深埋在他们已经忘却的童年时的斗争中了。他们对尼科尔的外表的和谐和风度更感兴趣，这恰恰是她病情的一个方面。尽管她拥有着不愿被别人拥有的迪克，但她仍过着孤寂的生活。
+
+他有几次想放手不去管她，但都没有成功。他们在一起度过了许多美好时光，曾有多少个不眠之夜娓娓长谈，但每次他转身离她而去，留给她的只是手中的虚幻，可以凝视它，呼唤它，但她知道，这只是一种希望，希望他很快就回来。
+
+"That's all." With disgust he heard himself lying, but here and now the vastness of the subject could only be compressed into a lie. "Outside of that there's only confusion and chaos. I won't lecture to you—we have too acute a realization of your physical suffering. But it's only by meeting the problems of every day, no matter how trifling and boring they seem, that you can make things drop back into place again. After that—perhaps you'll be able again to examine—"
+
+He had slowed up to avoid the inevitable end of his thought: "—the frontiers of consciousness." The frontiers that artists must explore were not for her, ever. She was fine-spun, inbred—eventually she might find rest in some quiet mysticism. Exploration was for those with a measure of peasant blood, those with big thighs and thick ankles who could take punishment as they took bread and salt, on every inch of flesh and spirit.
+
+—Not for you, he almost said. It's too tough a game for you.
+
+Yet in the awful majesty of her pain he went out to her unreservedly, almost sexually. He wanted to gather her up in his arms, as he so often had Nicole, and cherish even her mistakes, so deeply were they part of her. The orange light through the drawn blind, the sarcophagus of her figure on the bed, the spot of face, the voice searching the vacuity of her illness and finding only remote abstractions.
+
+“就这些。”他讨厌自己说谎，但此时此刻，这话题纵使能说上千言万语也只能压缩成一句谎话。“除此以外，只有糊涂和混乱。我不想教训你——我们非常清楚你身体受的痛苦，但只有面对每天会有的问题，不论这些问题多么琐碎和乏味，你才能重新回到原来的状态。此后——也许你就能再次审视——”
+
+他慢慢地说，以免把话一下子说完，“——意识的边缘。”艺术家必须探索的意识边缘从来与她无缘。她过于琐碎，心胸狭窄——她最终可能会在某种宁静的神秘主义那里找到归宿。探索精神适合那些具有庄稼汉的血气的，五大三粗的人，他们可以像吃面包和盐那样承受每一寸肌肤和精神上的刑罚——
+  
+这不适合你，他几乎要说出口来。这玩艺对你来说太艰难了。
+
+但在她那种令人敬畏的深厚的痛苦面前，他又对她满怀同情，几乎是一种怜爱之情。他想把她搂在怀里，就像他常常搂住尼科尔一样，他甚至欣赏她的缺陷，因为这缺陷是深藏于她体内的一部分。橙黄色的光线透过窗帘，照到床上她那犹如石棺般的躯体，她的脸庞，她的声音好像在探究她疾病背后的那片虚空，所得到的只是一片虚无缥缈的思绪。
+ 
 
 
 
