@@ -217,7 +217,49 @@ Dick tried to rest—the struggle would come presently at home and he might have
 
 迪克想要歇一会——他知道一回家就会有争执，他也许要花费很多时间，把事情整个儿向她细细解释。一个“精神分裂症患者”有理由被称为人格分裂者——尼科尔是这样一个人，要么无需解释，要么无法解释，所以需要以一种积极和肯定的持之以恒的方式对待她，对她现实的道路永远敞开，使逃避之路难以通行。然而伴随着疯狂而出现的才思敏捷，多才多艺就如同丰沛的雨水渗进、漫过和冲刷着堤坝。这需要许多人的齐心协力的配合。他觉得这一次尼科尔需要自我治疗。他准备等待，直到她回忆起先前的经历并感到厌恶。他煞费苦心地筹划，想重新采用一年前放松下来的饮食节制疗法。
 
+Now she lowered the lights for love. Why else should she want to shut off his view of her? He sent his words to her like letters, as though they left him some time before they reached her.
 
+"Hard to sit here and be close to you, and not kiss you." Then they kissed passionately in the centre of the floor. She pressed against him, and went back to her chair.
+
+It could not go on being merely pleasant in the room. Forward or backward; when the phone rang once more he strolled into the bedchamber and lay down on her bed, opening Albert McKisco's novel. Presently Rosemary came in and sat beside him.
+"You have the longest eyelashes," she remarked.
+"We are now back at the Junior Prom. Among those present are Miss Rosemary Hoyt, the eyelash fancier—"
+
+She kissed him and he pulled her down so that they lay side by side, and then they kissed till they were both breathless. Her breathing was young and eager and exciting. Her lips were faintly chapped but soft in the corners.
+When they were still limbs and feet and clothes, struggles of his arms and back, and her throat and breasts, she whispered, "No, not now—those things are rhythmic."
+
+Disciplined he crushed his passion into a corner of his mind, but bearing up her fragility on his arms until she was poised half a foot above him, he said lightly:
+"Darling—that doesn't matter."
+Her face had changed with his looking up at it; there was the eternal moonlight in it.
+"That would be poetic justice if it should be you," she said. She twisted away from him, walked to the mirror, and boxed her disarranged hair with her hands. Presently she drew a chair close to the bed and stroked his cheek.
+
+她把灯光调暗些，以便于谈情说爱。她为什么不让他好好看看她呢？他说起话来就像是把一个个字母送她耳朵里，好像这些宇母要花些时间才能到达她那儿。
+
+　　“坐在这儿，又靠得这么近，真想吻吻你。”接着他们站在房间中央热烈地亲吻起来。她紧挨着他回到自己的椅子上。
+
+　　仅仅在客厅里亲热是不够的。要么前进，要么后退。当电话又一次响起时，他踅进了卧室，躺倒在她的床上，打开艾伯特-麦基斯克的小说。萝丝玛丽走进来，坐在他的身边。
+
+　　“你的睫毛真长。”她说。
+
+　　“我们现在是在大学三年级生举办的舞会上，出席舞会的是萝丝玛丽-霍伊特小姐，她是个眼睫毛迷——”
+
+　　她吻了他，他把她拉下来，他们躺在一起，又亲吻起来。她的呼吸透出青春气息，显得急迫和兴奋。她的嘴唇有些粗糙，但口角柔软。
+
+　　他们仍和衣搂抱着。他手脚忙乱，她气喘吁吁，胸脯起伏，低声说，“不，现在不行——那些事要慢慢来。”
+
+　　他克制着把自己的激情压到大脑的角落里去。他用手臂托起她绵软的身体，一直把她举到离他半英尺高，他轻轻地说：
+
+　　“亲爱的——这没关系。”
+
+　　他仰面看着她，她的脸犹如一轮变幻着的月亮，发出永恒的光辉。
+
+　　“要是你这么做，你会得到善果的。”她说。她从他怀里挣脱出来，走到镜子那儿，用手拍打着凌乱的头发。过后，拖过一把椅子放到床边，她轻轻地抚摸着他的面颊。
+
+
+Rosemary insisted on treating Dick to lunch next day. They went to a little trattoria kept by an Italian who had worked in America, and ate ham and eggs and waffles. Afterward, they went to the hotel. Dick's discovery that he was not in love with her, nor she with him, had added to rather than diminished his passion for her. Now that he knew he would not enter further into her life, she became the strange woman for him. He supposed many men meant no more than that when they said they were in love—not a wild submergence of soul, a dipping of all colors into an obscuring dye, such as his love for Nicole had been. Certain thoughts about Nicole, that she should die, sink into mental darkness, love another man, made him physically sick.
+
+次日，萝丝玛丽坚持要请迪克吃饭。他们来到一个在美国干过活的意大利人开的餐馆，吃了火腿蛋和华夫饼。餐后，他们回到旅馆。迪克发觉他未曾爱上她，她也并不爱他，但这一发现并未削弱，反而增强了他对她的情欲。既然他明白他不会更深入到她的生活中去，她对他而言变成了一个陌生的女人。他猜想许多人说自己陷入爱河时，所表达的也不过如此——不会是灵魂的沉沦，也不是将所有的色彩浸入到一只染缸中去，就像他对尼科尔的爱那样。他想起了尼科尔，尼科尔应该去死的想法沉入到精神的黑暗中去了，而想到她可能爱上另一个男人，他感到内心阵阵痛楚。
+ 
 
 
 
