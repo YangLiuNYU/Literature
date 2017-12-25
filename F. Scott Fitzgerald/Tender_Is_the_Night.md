@@ -260,6 +260,10 @@ Rosemary insisted on treating Dick to lunch next day. They went to a little trat
 
 次日，萝丝玛丽坚持要请迪克吃饭。他们来到一个在美国干过活的意大利人开的餐馆，吃了火腿蛋和华夫饼。餐后，他们回到旅馆。迪克发觉他未曾爱上她，她也并不爱他，但这一发现并未削弱，反而增强了他对她的情欲。既然他明白他不会更深入到她的生活中去，她对他而言变成了一个陌生的女人。他猜想许多人说自己陷入爱河时，所表达的也不过如此——不会是灵魂的沉沦，也不是将所有的色彩浸入到一只染缸中去，就像他对尼科尔的爱那样。他想起了尼科尔，尼科尔应该去死的想法沉入到精神的黑暗中去了，而想到她可能爱上另一个男人，他感到内心阵阵痛楚。
  
+Dick's interest in them increased with their ages, now eleven and nine. He managed to reach them over the heads of employees on the principle that both the forcing of children and the fear of forcing them were inadequate substitutes for the long, careful watchfulness, the checking and balancing and reckoning of accounts, to the end that there should be no slip below a certain level of duty. He came to know them much better than Nicole did, and in expansive moods over the wines of several countries he talked and played with them at length. They had that wistful charm, almost sadness, peculiar to children who have learned early not to cry or laugh with abandon; they were apparently moved to no extremes of emotion, but content with a simple regimentation and the simple pleasures allowed them. They lived on the even tenor found advisable in the experience of old families of the Western world, brought up rather than brought out. Dick thought, for example, that nothing was more conducive to the development of observation than compulsory silence.
+
+迪克对孩子的兴趣随他们年龄的增长而增长，眼下他们一个十一岁，一个九岁。他设法采用不同于保姆或家庭教师的方式来和他们相处，他的原则是：苛责和放任都无法代替对他们长期的、细心的观察，无法代替对他们言行的考察、评估和判断，这样才不至于疏忽他们相应承担的责仟。他比尼科尔更了解他们。几杯各国的名酒下肚之后，他便兴致勃勃地同孩子们海阔天空地聊天，尽情地玩乐。他们很安静，甚至有一种忧伤的神情，这是那些很早就懂得不能放声大哭或咧嘴大笑的孩子的特点。他们早就不会流露偏激的情绪，而满足于生活的常规和可以得到的朴素的乐趣。这种平静的生活在西方世界那些古老家族的经历中。被认为是一种可取的生活方式，这恰恰是教养的标志，而不是一时的表现。譬如，迪克就认为，对观察力的发展来说，最有效的莫过于克制性的沉默。
+
 
 
 
