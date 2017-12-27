@@ -264,7 +264,13 @@ Dick's interest in them increased with their ages, now eleven and nine. He manag
 
 迪克对孩子的兴趣随他们年龄的增长而增长，眼下他们一个十一岁，一个九岁。他设法采用不同于保姆或家庭教师的方式来和他们相处，他的原则是：苛责和放任都无法代替对他们长期的、细心的观察，无法代替对他们言行的考察、评估和判断，这样才不至于疏忽他们相应承担的责仟。他比尼科尔更了解他们。几杯各国的名酒下肚之后，他便兴致勃勃地同孩子们海阔天空地聊天，尽情地玩乐。他们很安静，甚至有一种忧伤的神情，这是那些很早就懂得不能放声大哭或咧嘴大笑的孩子的特点。他们早就不会流露偏激的情绪，而满足于生活的常规和可以得到的朴素的乐趣。这种平静的生活在西方世界那些古老家族的经历中。被认为是一种可取的生活方式，这恰恰是教养的标志，而不是一时的表现。譬如，迪克就认为，对观察力的发展来说，最有效的莫过于克制性的沉默。
 
+Nicole went on through her garden routine. She left the flowers she cut in designated spots to be brought to the house later by the gardener. Reaching the sea wall she fell into a communicative mood and no one to communicate with; so she stopped and deliberated. She was somewhat shocked at the idea of being interested in another man—but other women have lovers—why not me? In the fine spring morning the inhibitions of the male world disappeared and she reasoned as gaily as a flower, while the wind blew her hair until her head moved with it. Other women have had lovers—the same forces that last night had made her yield to Dick up to the point of death, now kept her head nodding to the wind, content and happy with the logic of, Why shouldn't I?
 
+She sat upon the low wall and looked down upon the sea. But from another sea, the wide swell of fantasy, she had fished out something tangible to lay beside the rest of her loot. If she need not, in her spirit, be forever one with Dick as he had appeared last night, she must be something in addition, not just an image on his mind, condemned to endless parades around the circumference of a medal.
+
+尼科尔在花园里继续做那些照例要做的事情。她将剪下的鲜花放在指定的地方，好让花工稍后拿到屋子里去。她来到海堤，这时她很想找个人说说话，但此处找不到这样一个人。她于是停住脚想起心事来。她有些吃惊，竟然对另一个男人发生了兴趣，但别的女人有情人呀——为什么我不能有呢？在这个清新的春天早晨，有关男人世界的禁忌消失了，在思维的园地，她的心像花儿一样欢乐地开放。风儿吹拂着她的头发，她随风儿晃动着脑袋——别的女人也有情人——正是昨晚使她产生迪克死去的心理的那股力量，此刻又让她陶醉在春风之中，并对那种逻辑感到满意和欣喜，为什么我不能有情人呢？
+
+　　她坐在低矮的海堤上，眺望着大海，但从另一片大海，那波涛汹涌的幻想之海，她钓起了某个实在的东西，放在了她的其他战利品的边上。如果在精神上，她不必始终如一地面对迪克，就像昨晚那样，那她也必然有些额外的东西，不只是他心目中的那个形象，注定要围绕一枚奖章而无休止地旋转。
 
 
 
