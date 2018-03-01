@@ -12,10 +12,20 @@ The event had every promise of happiness for her friend. Mr. Weston was a man of
 
 爱玛-伍德豪斯小姐端庄儒雅、才思敏捷、生性欢乐、家境宽裕，仿佛上苍将最美好的恩赐集中施与她一身了。她在这世界已经生活了将近二十一年，极少遭遇到苦恼或伤心的事情。
 
-　　她是两姊妹中年幼的一个，父亲是一位极富慈爱心人，对女儿无比娇惯溺爱。姐姐出嫁后，她早早便担当起家庭女主人的角色。她母亲很久以前就去世了，母亲的爱抚仅仅给她留下一点儿十分模糊的记忆。一位杰出的家庭女教师填补了母亲的空缺，它给与的母爱绝不亚于一位母亲。
+她是两姊妹中年幼的一个，父亲是一位极富慈爱心人，对女儿无比娇惯溺爱。姐姐出嫁后，她早早便担当起家庭女主人的角色。她母亲很久以前就去世了，母亲的爱抚仅仅给她留下一点儿十分模糊的记忆。一位杰出的家庭女教师填补了母亲的空缺，它给与的母爱绝不亚于一位母亲。
 
-　　泰勒小姐在伍德豪斯家生活已经有十六年，她不仅是个家庭女教师，更是这个家庭的朋友。她非常喜爱两位姑娘，尤其喜欢爱玛。在她们两人之间，姐妹亲情胜于师生关系。泰勒小姐脾气温和，即使在原来执教时期，也难得强加什么限制，现在，教师的权威早已烟消云散，他们就像相依为命的朋友一样生活在一起，挨骂喜欢做什么完全由着自己的性子来，虽然她高度尊重泰勒小姐的判断，但是决定主要由自己作主。……（此处有45字不通顺）
+泰勒小姐在伍德豪斯家生活已经有十六年，她不仅是个家庭女教师，更是这个家庭的朋友。她非常喜爱两位姑娘，尤其喜欢爱玛。在她们两人之间，姐妹亲情胜于师生关系。泰勒小姐脾气温和，即使在原来执教时期，也难得强加什么限制，现在，教师的权威早已烟消云散，他们就像相依为命的朋友一样生活在一起，挨骂喜欢做什么完全由着自己的性子来，虽然她高度尊重泰勒小姐的判断，但是决定主要由自己作主。……（此处有45字不通顺）
 
-　　悲哀降临了——仅仅是个轻微的悲哀而已——而且还不是以痛苦的方式降临的——泰勒小姐出嫁了，首先感到的是失去泰勒小姐的悲伤，在这位亲爱的朋友结婚的日子里，爱玛才第一次坐下悲哀的想象着未来，婚礼过后新人离去，饭桌上只剩下父亲和她，不可能指望有第三个人在漫长的夜晚来活跃气氛，她父亲饭后编造早上床安息，她只有自己在炉前痛惜自己的损失。
+悲哀降临了——仅仅是个轻微的悲哀而已——而且还不是以痛苦的方式降临的——泰勒小姐出嫁了，首先感到的是失去泰勒小姐的悲伤，在这位亲爱的朋友结婚的日子里，爱玛才第一次坐下悲哀的想象着未来，婚礼过后新人离去，饭桌上只剩下父亲和她，不可能指望有第三个人在漫长的夜晚来活跃气氛，她父亲饭后编造早上床安息，她只有自己在炉前痛惜自己的损失。
 
-　　她的朋友在这桩婚姻中面临着种种幸福的前景，维斯顿先生的品格无懈可击，财产富足，年纪适中，态度谦和，爱玛想到自己向来希望本着自我牺牲精神和慷慨的友谊促成这桩婚姻，就感到些许满足，但是那天早上的活动对她来说却是阴郁的，每天的每个时辰都感到需要泰勒小姐，她回忆其她慈祥的音容笑貌——十六年来一直地那样和蔼慈祥——及其自己五岁其她便开始教授知识，陪自己做游戏——回忆起她在自己健康时不惜贡献出全部能力，为了使她高兴而时时相伴——在自己幼年生各种疾病时更是百般照料，无微不至，为此她心中时常洋溢感激之情；在伊莎贝拉出嫁后的七年间，家里只剩下她们两人，两人平等相待，毫无保留，那更是亲切美好的回忆。那是个非常难得的朋友加伴侣，富有才华，知识丰富。乐于主人，态度谦和，对家庭的一切都了如指掌，对家里关心的所有事务全都十分不感兴趣——爱玛尽可以将自己的各种念头统统倾诉给她，而绝对不会发现她的慈爱会产生任何瑕疵。
+她的朋友在这桩婚姻中面临着种种幸福的前景，维斯顿先生的品格无懈可击，财产富足，年纪适中，态度谦和，爱玛想到自己向来希望本着自我牺牲精神和慷慨的友谊促成这桩婚姻，就感到些许满足，但是那天早上的活动对她来说却是阴郁的，每天的每个时辰都感到需要泰勒小姐，她回忆其她慈祥的音容笑貌——十六年来一直地那样和蔼慈祥——及其自己五岁其她便开始教授知识，陪自己做游戏——回忆起她在自己健康时不惜贡献出全部能力，为了使她高兴而时时相伴——在自己幼年生各种疾病时更是百般照料，无微不至，为此她心中时常洋溢感激之情；在伊莎贝拉出嫁后的七年间，家里只剩下她们两人，两人平等相待，毫无保留，那更是亲切美好的回忆。那是个非常难得的朋友加伴侣，富有才华，知识丰富。乐于主人，态度谦和，对家庭的一切都了如指掌，对家里关心的所有事务全都十分不感兴趣——爱玛尽可以将自己的各种念头统统倾诉给她，而绝对不会发现她的慈爱会产生任何瑕疵。
+  
+Real, long–standing regard brought the Westons and Mr. Knightley; and by Mr. Elton, a young man living alone without liking it, the privilege of exchanging any vacant evening of his own blank solitude for the elegancies and society of Mr. Woodhouse's drawing–room, and the smiles of his lovely daughter, was in no danger of being thrown away.
+  
+韦斯顿夫妇和奈特里先生来访是出于真挚而持久的关系；一位肚子生活却不堪孤独的年轻人埃尔顿先生来访，则是想以伍德豪斯先生家雅致客厅中的社交活动，以及他女儿的嫣然微笑，填补自己闲暇夜晚的空虚孤寂，这种特权决不会面临抛出门外的危险。
+
+Mrs. Bates, the widow of a former vicar of Highbury, was a very old lady, almost past every thing but tea and quadrille. She lived with her single daughter in a very small way, and was considered with all the regard and respect which a harmless old lady, under such untoward circumstances, can excite. Her daughter enjoyed a most uncommon degree of popularity for a woman neither young, handsome, rich, nor married. Miss Bates stood in the very worst predicament in the world for having much of the public favour; and she had no intellectual superiority to make atonement to herself, or frighten those who might hate her into outward respect. She had never boasted either beauty or cleverness. Her youth had passed without distinction, and her middle of life was devoted to the care of a failing mother, and the endeavour to make a small income go as far as possible. And yet she was a happy woman, and a woman whom no one named without good–will. It was her own universal good–will and contented temper which worked such wonders. She loved every body, was interested in every body's happiness, quicksighted to every body's merits; thought herself a most fortunate creature, and surrounded with blessings in such an excellent mother, and so many good neighbours and friends, and a home that wanted for nothing. The simplicity and cheerfulness of her nature, her contented and grateful spirit, were a recommendation to every body, and a mine of felicity to herself. She was a great talker upon little matters, which exactly suited Mr. Woodhouse, full of trivial communications and harmless gossip.
+
+贝茨太太是海伯里过去一位牧师的遗孀，她的年纪实在太大了，处了喝茶打扑克外，几乎什么也做不了。他与自己的独生女儿在一起过着非常单调的生活。尽管处在这种不幸的境遇中，却仍然能激起大家对一位无为的老太太所能产生的全部敬意。她女儿是一位即不年轻漂亮，有不富有的未婚女子，却受到非同一般的爱戴。贝茨小姐受到的恩惠其实使她处于最糟不过的窘境，她本人缺乏自知之明也不会威胁那些可能憎恨他的人们，让他们表面上对她表示尊敬。她从来没有让人感到容貌上的美，也没有在心智方面有聪明过人的表现。她的年轻时代在不知不觉中逝去了，她的中年时光全都贡献给照顾衰弱的母亲，以及设法将一笔微小的收入尽可能派各种达用场。不过，她是个愉快的女人，任何人提起她时心中都不乏善意。创造如此奇迹的正是她自己无时不在的善意和知足的天性。她热爱每一个人，对每一个人的幸福都关怀备至，对每个人的优点特别敏感关注。她认为自己是最幸福的人，依傍如此杰出的米亲而沉浸在大家的祝福中，周围不但有如此众多的好邻居和好朋友，而且自己还有一个什么都不缺的家。她有纯朴而欢乐的天性，她有知足而感恩的精神，这些便是她与别人交往的桥梁，也是她自己深感幸运的宝藏。她能就芝麻小事夸夸其谈，这正好符合伍德豪斯先生的胃口，因为那时些琐细的交流和无害的闲言碎语。
+
+
