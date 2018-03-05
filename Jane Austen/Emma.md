@@ -52,3 +52,9 @@ She then repeated some warm personal praise which she had drawn from Mr. Elton, 
 “从某种意义上讲，埃尔顿先生的风度或许胜过奈特里先生和维斯顿先生，但是他们更多些文雅。把他们当作典型或许更恰当。韦斯顿先生的性情开朗，思维敏捷，近乎直截了当，大家因而都喜欢他，以为他幽默诙谐——但是照样模仿他就不合适了。奈特里先生那种直率、果断、居高临下的风度也是不能模仿的——尽管对他来说非常合适，因为他的体态、容貌和生活地位似乎允许这么做。但是，假如任何一个年轻人模仿他的风度，那可实在难以忍受。与此相反，照我的想法，一个年轻人如果以埃尔顿先生为样板，那将是比较适宜的。埃尔顿先生脾气和蔼，天性欢乐，态度殷勤，举止文雅。在我看来，他好象进来变得尤其文雅了，哈勒特，我不知道他是否刻意迎合我们两人中的那一位他的温文儒雅比以前更甚，让我感到惊异。假如他真的有意，我以前没告诉你他是怎么评论你的吗？”
 
 接着她重复引用埃尔顿先生对她的热情赞扬，这些话现在充分起作用了。哈里特绯红脸颊，泛出了微笑，说她从来就认为埃尔顿先生非常平易近人。
+
+"Such an eye!—the true hazle eye—and so brilliant! regular features, open countenance, with a complexion! oh! what a bloom of full health, and such a pretty height and size; such a firm and upright figure! There is health, not merely in her bloom, but in her air, her head, her glance. One hears sometimes of a child being "the picture of health;" now, Emma always gives me the idea of being the complete picture of grown–up health. She is loveliness itself. Mr. Knightley, is not she?"
+
+“多美的眼睛！——纯粹的单褐色——多么明亮！五官端正，容貌开朗，肤色洁白！啊！脸色健康红润像盛开的花朵，身体的高度和各部分搭配如此匀称，提醒多么高挑稳健。她的健康不仅表现在红润的脸色，而且体现在她的头发光泽、她的头型、她的回眸。有时候人们说，某个孩子像‘画里的健康娃娃’一样。在我的脑子里，爱玛从来就是一幅典型的成年健康姑娘图画。她就是可爱的化身。奈特里先生，难道不是吗？”
+ 
+ 
