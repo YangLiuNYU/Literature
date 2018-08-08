@@ -1,3 +1,36 @@
+On the pleasant shore of the French Riviera, about half way between Marseilles and the Italian border, stands a large, proud, rose-colored hotel. Deferential palms cool its flushed façade, and before it stretches a short dazzling beach. Lately it has become a summer resort of notable and fashionable people; a decade ago it was almost deserted after its English clientele went north in April. Now, many bungalows cluster near it, but when this story begins only the cupolas of a dozen old villas rotted like water lilies among the massed pines between Gausse’s Hôtel des Étrangers and Cannes, five miles away.
+
+The hotel and its bright tan prayer rug of a beach were one. In the early morning the distant image of Cannes, the pink and cream of old fortifications, the purple Alp that bounded Italy, were cast across the water and lay quavering in the ripples and rings sent up by sea-plants through the clear shallows. Before eight a man came down to the beach in a blue bathrobe and with much preliminary application to his person of the chilly water, and much grunting and loud breathing, floundered a minute in the sea. When he had gone, beach and bay were quiet for an hour. Merchantmen crawled westward on the horizon; bus boys shouted in the hotel court; the dew dried upon the pines. In another hour the horns of motors began to blow down from the winding road along the low range of the Maures, which separates the littoral from true Provençal France.
+
+A mile from the sea, where pines give way to dusty poplars, is an isolated railroad stop, whence one June morning in 1925 a victoria brought a woman and her daughter down to Gausse’s Hôtel. The mother’s face was of a fading prettiness that would soon be patted with broken veins; her expression was both tranquil and aware in a pleasant way. However, one’s eyes moved on quickly to her daughter, who had magic in her pink palms and her cheeks lit to a lovely flame, like the thrilling flush of children after their cold baths in the evening. Her fine high forehead sloped gently up to where her hair, bordering it like an armorial shield, burst into lovelocks and waves and curlicues of ash blonde and gold. Her eyes were bright, big, clear, wet, and shining, the color of her cheeks was real, breaking close to the surface from the strong young pump of her heart. Her body hovered delicately on the last edge of childhood—she was almost eighteen, nearly complete, but the dew was still on her.
+
+As sea and sky appeared below them in a thin, hot line the mother said:
+
+“Something tells me we’re not going to like this place.”
+
+“I want to go home anyhow,” the girl answered.
+
+在法国里维埃拉风光宜人的海滨地区，大约位于马赛①与意大利边境的中途，坐落着一家高大气派、玫瑰色的旅馆。挺拔的棕榈树给富丽堂皇的旅馆正门带来一片阴凉，门前延伸出一小块亮晶晶的沙滩。近来，这里已成了显贵名流们的避暑胜地。十多年前，当英国房客在四月间去北方后，这房子就几乎没人住了。如今，旅馆四周却冒出了许多带游廊的平房，但本书的故事开始之时，也还只有十几幢圆顶的老式别墅。这些圆顶别墅已经衰败，就像戈赛的外宾旅馆与距此地五英里远的戛纳②之间茂密的松树林中的睡莲一样——
+
+　　①法国东南部港市，为法国第二大城市。
+
+　　②法国东南部港市，为著名的滨海游览胜地。
+
+　　旅馆与它门前明亮的、跪拜地毯似的棕黄色沙滩浑然一体。清晨，远处戛纳的城市轮廓、粉红与浅黄相间的古老城堡及法意边界绛紫色的阿尔卑斯山倒映在水面上，在清澈的浅滩，随着海生植物摇曳出的圈圈细浪颤动着。时间不到八点，一个身穿蓝色浴衣的男子来到海滩，他先用清凉的海水浇泼身体，一边还大口呼吸，发出哼哼的声音，随后下水扑腾了一阵。他离去后，沙滩与海湾清静了一个时辰。远处的海面上，商船缓缓西行，餐厅侍者在旅馆的院子里大声说话，松树上的露水渐渐地干了。又过了一个时辰，汽车喇叭才开始在沿着历史上摩尔人①居住的丘陵地带蜿蜒曲折的公路上鸣响，那地方正好将法国的沿海地区与真正的普罗旺斯②地区分隔开来——
+
+　　①北非阿拉伯人，公元8世纪初曾征服伊比利亚半岛，一度侵入到法国境内。
+
+　　②法国古省名，范围西起罗纳河，东至凡尔河，南至地中海，历史上曾以诗歌和武侠著称。
+
+　　离海滩一英里远的地方，松树让位给了落满灰尘的杨树，那儿有一个孤零零的铁路小站。一九二五年六月的一个早晨，一辆折篷汽车载着一位夫人和她的女儿向戈赛旅馆驰来。母亲脸上尚有往日的风韵，这风韵不久就会被颓丧的心情蚕食。她的神态令人愉悦地兼备了安详与明达事理，然而，人们的目光很快就会移向她的女儿，她那粉红色的手掌似乎有着魔力，她的双颊焕发出迷人的光彩，就像孩子们傍晚洗过冷水浴后红扑扑的小脸蛋一样可爱。她那漂亮而开阔的前额舒缓地上伸到发际，金黄色的头发像一枚盾牌将额头掩起，再蓬松出一头波浪形鬈发。她那对水汪汪的大眼睛晶莹亮丽，闪烁着光芒。她的双颊天然红润，那是从她有力跳动的年轻的心脏里迸发出的色彩。她的体态微妙地徘徊在孩提时代的最后边缘——她就要满十八岁了，她几乎完全长成妇人，然而少女时代的影子仍在她身上如清晨的露水般若隐若现。
+
+　　大海慢慢地在她们的南面显现，与天空交接成一条细长、炽热的线条，这时母亲说：
+
+　　“我觉得我们不会喜欢这个地方。”
+
+　　“我也有些想家了。”姑娘答道。
+
+
 The mother’s face was of a fading prettiness that would soon be patted with broken veins; her expression was both tranquil and aware in a pleasant way. However, one’s eyes moved on quickly to her daughter, who had magic in her pink palms and her cheeks lit to a lovely flame, like the thrilling flush of children after their cold baths in the evening. Her fine high forehead sloped gently up to where her hair, bordering it like an armorial shield, burst into lovelocks and waves and curlicues of ash blonde and gold. Her eyes were bright, big, clear, wet, and shining, the color of her cheeks was real, breaking close to the surface from the strong young pump of her heart. Her body hovered delicately on the last edge of childhood—she was almost eighteen, nearly complete, but the dew was still on her.
 
 母亲脸上尚有往日的风韵，这风韵不久就会被颓丧的心情蚕食。她的神态令人愉悦地兼备了安详与明达事理，然而，人们的目光很快就会移向她的女儿，她那粉红色的手掌似乎有着魔力，她的双颊焕发出迷人的光彩，就像孩子们傍晚洗过冷水浴后红扑扑的小脸蛋一样可爱。她那漂亮而开阔的前额舒缓地上伸到发际，金黄色的头发像一枚盾牌将额头掩起，再蓬松出一头波浪形鬈发。她那对水汪汪的大眼睛晶莹亮丽，闪烁着光芒。她的双颊天然红润，那是从她有力跳动的年轻的心脏里迸发出的色彩。她的体态微妙地徘徊在孩提时代的最后边缘——她就要满十八岁了，她几乎完全长成妇人，然而少女时代的影子仍在她身上如清晨的露水般若隐若现。
