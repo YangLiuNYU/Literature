@@ -59,7 +59,58 @@ Somewhere in the hills behind the hotel there was a dance, and Rosemary listened
 
 旅馆后边的某处山坡上有个舞会，睡在蚊帐里的萝丝玛丽聆听着随那朦胧的月光传人的音乐声，意识到处处都有欢乐。她不禁想起海滩上遇到的那些有教养的人来。她想，明天早晨也许会见到他们，但他们显然已结成一个妄自尊大的小团体，他们一旦将遮阳伞、竹毯、狗和孩子安置好，也就意味着他们将一部分海滩圈起来了。她打定主意无论如何在最后两个上午得加入这个团体而不是混迹于其他什么人群中。
 
+He seemed kind and charming—his voice promised that he would take care of her, and that a little later he would open up whole new worlds for her, unroll an endless succession of magnificent possibilities. He managed the introduction so that her name wasn't mentioned and then let her know easily that everyone knew who she was but were respecting the completeness of her private life—a courtesy that Rosemary had not met with save from professional people since her success.
+
+Nicole Diver, her brown back hanging from her pearls, was looking through a recipe book for chicken Maryland. She was about twenty-four, Rosemary guessed—her face could have been described in terms of conventional prettiness, but the effect was that it had been made first on the heroic scale with strong structure and marking, as if the features and vividness of brow and coloring, everything we associate with temperament and character had been molded with a Rodinesque intention, and then chiseled away in the direction of prettiness to a point where a single slip would have irreparably diminished its force and quality. With the mouth the sculptor had taken desperate chances—it was the cupid's bow of a magazine cover, yet it shared the distinction of the rest.
+
+他显得和蔼可亲、风度翩翩。听他口气，他一定会关照她。稍后，他就会为她打开一个全新的世界，展现出无穷无尽的壮丽的前景。他给她作介绍而设法不提及她的名宇，并让她很快明白，大家都知道她是谁，但完全尊重她的私生活——这种礼貌，自她成名以来，除了来自职业老手，萝丝玛丽还没有见识过。
+
+尼科尔-戴弗，珍珠项链贴在褐色的背脊上，正翻阅着一本制作马里兰鸡的食谱。她约莫二十四岁，萝丝玛丽估计——她的脸可以用“常见的美丽”这样的词来形容，然而给人留下的印象是：它的强健的脸架子最初是按英雄的模式来构造的，其面容及表情的独特和生动，以及所有可以同气质和特性相联系的方面，仿佛是根据罗丹①的意图塑造成的，随后再雕琢出美丽来，而且恰到好处，稍有闪失，就会无可弥补地损伤它所具有的力量和特质。对这张嘴，雕塑家更是费尽心机——这简直是杂志封面上的丘比特②之弓，当然，它与脸的其它部位也相吻合——
+
+①罗丹（1840-1917），法国著名雕塑家。
+
+She looked in turn at the three men, temporarily expropriating them. All three were personable in different ways; all were of a special gentleness that she felt was part of their lives, past and future, not circumstanced by events, not at all like the company manners of actors, and she detected also a far-reaching delicacy that was different from the rough and ready good fellowship of directors, who represented the intellectuals in her life. Actors and directors—those were the only men she had ever known, those and the heterogeneous, indistinguishable mass of college boys, interested only in love at first sight, whom she had met at the Yale prom last fall.
+
+These three were different. Barban was less civilized, more skeptical and scoffing, his manners were formal, even perfunctory. Abe North had, under his shyness, a desperate humor that amused but puzzled her. Her serious nature distrusted its ability to make a supreme impression on him.
+
+But Dick Diver—he was all complete there. Silently she admired him. His complexion was reddish and weather-burned, so was his short hair—a light growth of it rolled down his arms and hands. His eyes were of a bright, hard blue. His nose was somewhat pointed and there was never any doubt at whom he was looking or talking—and this is a flattering attention, for who looks at us?—glances fall upon us, curious or disinterested, nothing more. His voice, with some faint Irish melody running through it, wooed the world, yet she felt the layer of hardness in him, of self-control and of self-discipline, her own virtues. Oh, she chose him, and Nicole, lifting her head saw her choose him, heard the little sigh at the fact that he was already possessed.
+
+她挨个儿打量那三个男子，似乎眼下他们将归她所有。他们三个都是翩翩君子，并且各具特色。他们都有一种特别的温文尔雅的风度，她觉得这种风度来自他们的生活，是他们过去及未来生活的一部分，而并非因事而异，也全然不同于电影演员的交际方式。她还辨认出一种内在的优雅，有别于导演们的粗俗和善于交际的本领，而导演则是她生平遇到的有学识的人的代表。演员和导演——她只熟悉这些男人，这些人同那些有着不同来历，但又千篇一律的学院小子一个样，只对一见钟情的恋爱感兴趣，她去年秋天在耶鲁大学的舞会上见识过那些小伙子。
+
+这三个男子不尽相同。巴尔邦风雅不足，多了点怀疑和嘲讽的味道。他为人拘谨，甚至有点心不在焉。艾贝-诺思显得腼腆，然而他那种令人惊愕的幽默让她既高兴又困惑。她担心自己天性严肃，不能给他留下深刻的印象。
+
+但是迪克-戴弗——这儿他最完美。她不声不响地欣赏着他。他的皮肤微红，被太阳晒得黑黝黝的，短短的汗毛也略显红色——那细细的一层汗毛从膀子延伸到手背。他的眼睛是蓝色的，明亮而锐利。他的鼻子尖尖的，他在看谁或与谁交谈时总是目不转睛地注视着对方。这是一种讨人喜欢的注视，因为有谁在注意我们呢？目光落到我们身上，好奇的或无动于衷的，不过如此吧。他的嗓音，带着一种轻微的爱尔兰人的悦耳音调，仿佛要取悦世人，然而，她却感到他身上有一股硬气，一种自我克制和自我约束的气质，这也是她自己具备的美德。哦，她选择了他。尼科尔抬起头来，明白她选择了他，也听到一声低微的叹息，因为他早已被别人占有了。
+
+Rosemary bubbled with delight at the trunks. Her naïveté responded whole-heartedly to the expensive simplicity of the Divers, unaware of its complexity and its lack of innocence, unaware that it was all a selection of quality rather than quantity from the run of the world's bazaar; and that the simplicity of behavior also, the nursery-like peace and good will, the emphasis on the simpler virtues, was part of a desperate bargain with the gods and had been attained through struggles she could not have guessed at. At that moment the Divers represented externally the exact furthermost evolution of a class, so that most people seemed awkward beside them—in reality a qualitative change had already set in that was not at all apparent to Rosemary.
+
+She stood with them as they took sherry and ate crackers. Dick Diver looked at her with cold blue eyes; his kind, strong mouth said thoughtfully and deliberately:
+
+"You're the only girl I've seen for a long time that actually did look like something blooming."
+
+In her mother's lap afterward Rosemary cried and cried.
+"I love him, Mother. I'm desperately in love with him—I never knew I could feel that way about anybody. And he's married and I like her too—it's just hopeless. Oh, I love him so!"
+"I'm curious to meet him."
+"She invited us to dinner Friday."
+"If you're in love it ought to make you happy. You ought to laugh."
+Rosemary looked up and gave a beautiful little shiver of her face and laughed. Her mother always had a great influence on her.
+
+萝丝玛丽见到这条泳裤很是兴奋。她天真稚嫩，对戴弗夫妇这种奢华的单纯满心喜欢。她并没有意识到它的复杂，它的世故；也没有意识到他们的这种生活方式其实是更注重质量，而不是拥有一大堆世界各地的廉价品；她同样意识不到他们行为举止的朴素大方，他们的和蔼及友善，他们对普通美德的强调，都离不开同神灵作艰苦的讨价还价，都是通过一系列她还无从推断的斗争而获得的。此时此刻，戴弗夫妇外在地代表着一个阶层的最大程度的进化，这使得大多数人相形见细——事实上，一种质的变化已经开始，而萝丝玛丽竟漠然无知。
+
+他们喝雪利酒，吃饼干时，她就和他们站在一起。迪克-戴弗的那双蓝色眼睛冷冷地看着她，他的嘴显得可亲而又坚毅，他周到而又从容地说：
+
+“你是很久以来我所见过的，唯一看上去真正如花似玉的姑娘。”
+
+后来她伏在母亲的腿上哭了又哭。
+“我爱他，妈妈。我爱他爱得要命——我从没有想到我会对谁产生那样的感情。他已经结婚了，我还是喜欢她——这肯定是没有指望的。哦，我太爱他了！”
+“我倒很想见见他。”
+“戴弗夫人邀请我们周五去用餐。”
+“要是你在恋爱，你应该觉得快乐。你应该笑的。”
+萝丝玛丽仰起头来，脸庞优美地微微一动，笑了。她母亲始终对她有很大影响。
+
+
 He went back into his house and Nicole saw that one of his most characteristic moods was upon him, the excitement that swept everyone up into it and was inevitably followed by his own form of melancholy, which he never displayed but at which she guessed. This excitement about things reached an intensity out of proportion to their importance, generating a really extraordinary virtuosity with people. Save among a few of the tough-minded and perennially suspicious, he had the power of arousing a fascinated and uncritical love. The reaction came when he realized the waste and extravagance involved. He sometimes looked back with awe at the carnivals of affection he had given, as a general might gaze upon a massacre he had ordered to satisfy an impersonal blood lust.
+
+Rosemary bubbled with delight at the trunks. Her naïveté responded whole-heartedly to the expensive simplicity of the Divers, unaware of its complexity and its lack of innocence, unaware that it was all a selection of quality rather than quantity from the run of the world's bazaar; and that the simplicity of behavior also, the nursery-like peace and good will, the emphasis on the simpler virtues, was part of a desperate bargain with the gods and had been attained through struggles she could not have guessed at. At that moment the Divers represented externally the exact furthermost evolution of a class, so that most people seemed awkward beside them—in reality a qualitative change had already set in that was not at all apparent to Rosemary.
 
 他回到他的房间去。尼科尔清楚，现在他处于一种最特别的心境之中，这是一种要把所有人都卷进来的兴奋，而随之而来的必然是他自己的忧郁，虽然他从未表现出来，但她认为他有这种忧郁。对某些事兴奋到这样一种程度，就与这些事本身的重要性不相称了，而结果是产生出一种真正异乎寻常的对人的喜好。除了很少一些硬心肠、疑心重的人，他具有让人迷恋、痴情的魅力。但他一旦意识到结交过程中的浪费和做作，便会产生这样的心理反应。他有时会满怀惊骇回顾他引发的情感的狂欢，就好像一位将军注视为满足他那野蛮的嗜血欲望而下令进行的一场大屠杀。
 
