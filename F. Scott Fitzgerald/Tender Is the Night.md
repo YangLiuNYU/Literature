@@ -107,6 +107,26 @@ Rosemary looked up and gave a beautiful little shiver of her face and laughed. H
 “要是你在恋爱，你应该觉得快乐。你应该笑的。”
 萝丝玛丽仰起头来，脸庞优美地微微一动，笑了。她母亲始终对她有很大影响。
 
+Feeling good from the rosy wine at lunch, Nicole Diver folded her arms high enough for the artificial camellia on her shoulder to touch her cheek, and went out into her lovely grassless garden. The garden was bounded on one side by the house, from which it flowed and into which it ran, on two sides by the old village, and on the last by the cliff falling by ledges to the sea.
+
+Along the walls on the village side all was dusty, the wriggling vines, the lemon and eucalyptus trees, the casual wheel-barrow, left only a moment since, but already grown into the path, atrophied and faintly rotten. Nicole was invariably somewhat surprised that by turning in the other direction past a bed of peonies she walked into an area so green and cool that the leaves and petals were curled with tender damp.
+
+Knotted at her throat she wore a lilac scarf that even in the achromatic sunshine cast its color up to her face and down around her moving feet in a lilac shadow. Her face was hard, almost stern, save for the soft gleam of piteous doubt that looked from her green eyes. Her once fair hair had darkened, but she was lovelier now at twenty-four than she had been at eighteen, when her hair was brighter than she.
+
+Following a walk marked by an intangible mist of bloom that followed the white border stones she came to a space overlooking the sea where there were lanterns asleep in the fig trees and a big table and wicker chairs and a great market umbrella from Sienna, all gathered about an enormous pine, the biggest tree in the garden. She paused there a moment, looking absently at a growth of nasturtiums and iris tangled at its foot, as though sprung from a careless handful of seeds, listening to the plaints and accusations of some nursery squabble in the house. When this died away on the summer air, she walked on, between kaleidoscopic peonies massed in pink clouds, black and brown tulips and fragile mauve-stemmed roses, transparent like sugar flowers in a confectioner's window—until, as if the scherzo of color could reach no further intensity, it broke off suddenly in mid-air, and moist steps went down to a level five feet below.
+
+午餐时喝了玫瑰葡萄酒感觉挺好，尼科尔-戴弗高高地抱起双臂，肩膀上的假山茶花几乎要碰上她的面颊了。她走出户外来到那可爱的没有杂草的花园。花园的一边与住房相接，并从这儿延伸出去，深入到房子的庭院；另两边毗邻一个古老的村落；最后一边靠着向海岸礁石倾斜的悬崖。
+
+沿着村子一边的围墙，那儿的树木落满了灰尘。扭结的葡萄藤，还有柠檬树和按树，不久前被人随意丢弃在路上现已下陷的手推车，都有些衰败腐烂了。尼科尔总会感到意外，如果她换一个方向，经过一块芍药苗圃，便可走进一个绿枝掩映下的阴凉之地，那儿的树叶和花瓣上萦绕着一片轻柔的水汽。
+
+她戴了一方淡紫色的薄头巾，在颈前系了个结。甚至在白晃晃的日光下，头巾也把它的色彩映在她的脸上，投到在一团淡紫色阴影中移动着的脚旁。她神情凝重，几乎有点冷峻，只是她那双蓝眼睛闪动着让人怜爱的温柔而迷离的光芒。她的一头金发已失去了光泽，然而，她现在虽然二十四岁了，却比十八岁时更加妩媚，尽管那时她的头发比她本人还要亮丽。
+
+沿着白色界石后面如烟似雾般的花丛中的一条小径，她来到一处能够眺望大海的地方。那儿有几只灯笼静静地挂在无花果树枝上。一张大桌子，几把柳条椅和一把锡耶纳①出产的大型商用篷伞，都摆放在一棵高大的松树下面，这棵树比园子里所有其它的树都要粗壮。她在那儿歇了一会，漫不经心地望着一丛丛旱金莲和缠结在它根部的鸢尾，这些花仿佛是随手撒下的一把种子生长出来的。她还听到从住所的保育室传来埋怨声和指责声。当这些声音在夏天的微风中消逝时，她又往前走去，路两旁盛开着粉红色云团般的多姿多态的芍药花、黑色和棕色的郁金香花和娇嫩的紫茎的玫瑰花，这些花就像出售甜食的商店橱窗里的糖制花朵一样晶莹玲珑——她走着走着，直到这色彩的乐曲似乎无法达到更强的节奏，而在半空中蓦然停顿。潮湿的台阶通向下面五英尺的地方——
+
+Here there was a well with the boarding around it dank and slippery even on the brightest days. She went up the stairs on the other side and into the vegetable garden; she walked rather quickly; she liked to be active, though at times she gave an impression of repose that was at once static and evocative. This was because she knew few words and believed in none, and in the world she was rather silent, contributing just her share of urbane humor with a precision that approached meagreness. But at the moment when strangers tended to grow uncomfortable in the presence of this economy she would seize the topic and rush off with it, feverishly surprised with herself—then bring it back and relinquish it abruptly, almost timidly, like an obedient retriever, having been adequate and something more.
+
+这儿有一口水井，周围铺有木板，即使在最晴朗的日子里，井边上也是湿漉漉、滑溜溜的。她从另一头登上台阶，走进一个菜园。她走得相当快。她活泼好动，尽管有时给人一种们静的印象，既恬淡又动人。她识字不多，也不信任什么人，因而在这个世界上她就宁可保持沉默，然而近于贫乏的拘泥还是无损于她那优雅的气质。但有的时候，当陌生人对她的寡言少语感到不快时，她会抢过话题，急急忙忙地谈论起来，这时她自己也不免大吃一惊——随后把话题带回来，几乎是胆怯地一下子扔掉，如同一条乖巧的猎犬，表现得恰到好处。
+
 
 He went back into his house and Nicole saw that one of his most characteristic moods was upon him, the excitement that swept everyone up into it and was inevitably followed by his own form of melancholy, which he never displayed but at which she guessed. This excitement about things reached an intensity out of proportion to their importance, generating a really extraordinary virtuosity with people. Save among a few of the tough-minded and perennially suspicious, he had the power of arousing a fascinated and uncritical love. The reaction came when he realized the waste and extravagance involved. He sometimes looked back with awe at the carnivals of affection he had given, as a general might gaze upon a massacre he had ordered to satisfy an impersonal blood lust.
 
@@ -118,12 +138,56 @@ But to be included in Dick Diver's world for a while was a remarkable experience
 
 但是要被戴弗的世界接纳，哪怕只是一会儿，也是一种很特别的经历。人们相信：他为他们做了专门的安排，因为他能认识到他们性格的叮贵的独特性，而这种独特性多年来为生活中的妥协所淹没了。他对人体贴人微的关怀和优雅的风度很快能赢得人们的好感。他所表现出来的这种关怀和风度没有丝毫的犹豫和做作，因而只有凭借结果才能加以识别。另外，为了不使相互关系中的第一枝花朵枯萎，他毫无顾忌地敞开通向他那个诙谐有趣的世界的大门。只要他们心悦诚服地领受这一切，他们的快乐就是他首要考虑的事，但只要他们对它的丰富多彩闪出一丝怀疑来，他就会在他们的眼前消失，而他的言谈举止也就不会给人留下什么值得一提的印象了。
 
+At eight-thirty that evening he came out to meet his first guests, his coat carried rather ceremoniously, rather promisingly, in his hand, like a toreador's cape. It was characteristic that after greeting Rosemary and her mother he waited for them to speak first, as if to allow them the reassurance of their own voices in new surroundings.
+
+To resume Rosemary's point of view it should be said that, under the spell of the climb to Tarmes and the fresher air, she and her mother looked about appreciatively. Just as the personal qualities of extraordinary people can make themselves plain in an unaccustomed change of expression, so the intensely calculated perfection of Villa Diana transpired all at once through such minute failures as the chance apparition of a maid in the background or the perversity of a cork. While the first guests arrived bringing with them the excitement of the night, the domestic activity of the day receded past them gently, symbolized by the Diver children and their governess still at supper on the terrace.
+
+那天晚上八点半，他出门迎候他的第一批客人。他恭敬有礼，从容自信，外套拿在手里，犹如斗牛士拎着他的披风。在同萝丝玛丽和她的母亲打过招呼后，他等着让她们先开日，仿佛要让她们在新的环境里对自已的声音有足够的信心，这种方式是颇为独特的。
+
+若接着叙述萝丝玛丽，应该说，她走了一阵上塔姆斯的山路，呼吸了山间清新的空气，此刻她和她的母亲正兴致勃勃地四下观望。正如一个非凡人物的个人品质能够在一种不习惯的表情变化中显露出来，黛安娜别墅的那种苦心营造的完美也会因诸如一个女仆在背后贸然出现，或一只瓶子的软木塞拔不出来这样细小的差错而顷刻间显露得清清楚楚。随着第一批客人的光临，以及随之而来的晚会的喧闹，主人家的这一天的日常家庭活动就悄悄地离别而去。戴弗家的孩子和他们的家庭教师仍在露天平台晚餐就是这种家庭生活的一个标志。
+
+She felt far from him. The undertone of his words repelled her and she withdrew her adoration for the Divers from the profanity of his bitterness. She was glad he was not next to her at dinner and she was still thinking of his words "especially her" as they moved toward the table in the garden.
+
+For a moment now she was beside Dick Diver on the path. Alongside his hard, neat brightness everything faded into the surety that he knew everything. For a year, which was forever, she had had money and a certain celebrity and contact with the celebrated, and these latter had presented themselves merely as powerful enlargements of the people with whom the doctor's widow and her daughter had associated in a hôtel-pension in Paris. Rosemary was a romantic and her career had not provided many satisfactory opportunities on that score. Her mother, with the idea of a career for Rosemary, would not tolerate any such spurious substitutes as the excitations available on all sides, and indeed Rosemary was already beyond that—she was In the movies but not at all At them. So when she had seen approval of Dick Diver in her mother's face it meant that he was "the real thing"; it meant permission to go as far as she could.
+
+"I was watching you," he said, and she knew he meant it. "We've grown very fond of you."
+
+"I fell in love with you the first time I saw you," she said quietly. He pretended not to have heard, as if the compliment were purely formal.
+
+"New friends," he said, as if it were an important point, "can often have a better time together than old friends."
+
+With that remark, which she did not understand precisely, she found herself at the table, picked out by slowly emerging lights against the dark dusk. A chord of delight struck inside her when she saw that Dick had taken her mother on his right hand; for herself she was between Luis Campion and Brady.
+
+Surcharged with her emotion she turned to Brady with the intention of confiding in him, but at her first mention of Dick a hard-boiled sparkle in his eyes gave her to understand that he refused the fatherly office. In turn she was equally firm when he tried to monopolize her hand, so they talked shop or rather she listened while he talked shop, her polite eyes never leaving his face, but her mind was so definitely elsewhere that she felt he must guess the fact. Intermittently she caught the gist of his sentences and supplied the rest from her subconscious, as one picks up the striking of a clock in the middle with only the rhythm of the first uncounted strokes lingering in the mind.
+
+她觉得同他不是一路人。他这些暧昧的话让她反感，而听了这番苦涩的直露的表白，她不由得收回了对戴弗夫妇的推崇。她很高兴吃饭时他没有挨着她。他们一起向花园里的餐桌走去时，她仍然在琢磨他所说的“尤其是她”这句话。
+
+在路上的时候，曾经有一刻她走在迪克-戴弗的身边。他沉着而敏锐，周边的一切都被他那种通晓一切的自信所包容。有过一年——那是难以忘怀的，她有钱，有一定的名气，还同名人来往。这些名人其实不过是军医的孀妇及其女儿在巴黎膳宿公寓旅馆所接触的社交圈子的大规模扩展而已。萝丝玛丽是个浪漫的姑娘，就此而言，她的生活还没有给她提供许多令人满意的机会。她母亲对萝丝玛丽寄予厚望，不会容忍唾手可得，让人兴奋一阵的这类虚假的替代者，而萝丝玛丽也确实已经超越这一层次了——她步入了电影界，然而还没有彻底站稳脚跟，所以当她从母亲脸上看出她对迪克-戴弗的赞许时，这就意味着他是个“真实的目标”，就意味着她可以自行其是了。
+
+“我一直在注视你。”他说。她明白他的意思。“我们越来越喜欢你了。”
+
+“我第一次见到你的时候就爱上你了。”她轻轻地说。
+
+他装作没有听见，只当是一句纯粹场面上的恭维话。
+
+“新朋友，”他说，仿佛这是很重要的一点，“常常比老朋友相处得更愉快。”
+
+他的这句话她并没有真正听懂，这时她发现已经来到餐桌旁。灯光渐渐亮起来，而四周则是一片黄昏的幽暗。当她看到迪克右手挽着她母亲时，欢乐的旋律不禁在心头荡漾起来。她自己坐在了路易斯-坎布恩和布雷迪的中间。
+
+她满怀激情地转向布雷迪，想要对他说说心里话，但她一提起迪克来，他的双眼就射出凶巴巴的目光，这使她明白他拒绝扮演父亲般的角色。反过来，当他试图独占她的爱情的时候，她也表现出同样的坚决，因而他们只是说些本行业的话，或者很大程度上她听他说些行话。她的眼睛有礼貌地一直看着他，但她如此地心不在焉，连她自己也觉得他肯定能猜出真相了。她偶尔也能听明白他话里的意思，并在下意识里把这些话接下去，犹如一个人在钟声敲到一半时，只是凭心里回荡着的，而起初并未计数的敲击节奏就能继续敲下去一样。
+
+
+
+
+
+
+
 Rosemary dozed for three hours and then lay awake, suspended in the moonshine. Cloaked by the erotic darkness she exhausted the future quickly, with all the eventualities that might lead up to a kiss, but with the kiss itself as blurred as a kiss in pictures. She changed position in bed deliberately, the first sign of insomnia she had ever had, and tried to think with her mother's mind about the question. In this process she was often acute beyond her experience, with remembered things from old conversations that had gone into her half-heard.
 
-　萝丝玛丽迷迷糊糊地睡了三个小时，然后静静地躺在床上，任思绪在月光中倘佯。夜色簇拥着她，情思撩人。她对前景很快丧失了信心，她想即便到最后极有可能会亲吻一下，但这个吻会和电影里的吻一样散淡。她在床上悠闲地翻了个身，这是她有生以来第一次失眠的征兆。她试着用她母亲考虑问题的思路去想。在这种情况下，她的敏锐常常超出了她的经历，对过去那些听来的只言片语也能回忆起来。
+萝丝玛丽迷迷糊糊地睡了三个小时，然后静静地躺在床上，任思绪在月光中倘佯。夜色簇拥着她，情思撩人。她对前景很快丧失了信心，她想即便到最后极有可能会亲吻一下，但这个吻会和电影里的吻一样散淡。她在床上悠闲地翻了个身，这是她有生以来第一次失眠的征兆。她试着用她母亲考虑问题的思路去想。在这种情况下，她的敏锐常常超出了她的经历，对过去那些听来的只言片语也能回忆起来。
  
  
- Rosemary had never done much thinking, save about the illimitability of her mother's perfections, so this final severance of the umbilical cord disturbed her sleep. A false dawn sent the sky pressing through the tall French windows, and getting up she walked out on the terrace, warm to her bare feet. There were secret noises in the air, an insistent bird achieved an ill-natured triumph with regularity in the trees above the tennis court; footfalls followed a round drive in the rear of the hotel, taking their tone in turn from the dust road, the crushed-stone walk, the cement steps, and then reversing the process in going away. Beyond the inky sea and far up that high, black shadow of a hill lived the Divers. She thought of them both together, heard them still singing faintly a song like rising smoke, like a hymn, very remote in time and far away. Their children slept, their gate was shut for the night.
+Rosemary had never done much thinking, save about the illimitability of her mother's perfections, so this final severance of the umbilical cord disturbed her sleep. A false dawn sent the sky pressing through the tall French windows, and getting up she walked out on the terrace, warm to her bare feet. There were secret noises in the air, an insistent bird achieved an ill-natured triumph with regularity in the trees above the tennis court; footfalls followed a round drive in the rear of the hotel, taking their tone in turn from the dust road, the crushed-stone walk, the cement steps, and then reversing the process in going away. Beyond the inky sea and far up that high, black shadow of a hill lived the Divers. She thought of them both together, heard them still singing faintly a song like rising smoke, like a hymn, very remote in time and far away. Their children slept, their gate was shut for the night.
  
  萝丝玛丽向来懒得动脑，除了对她母亲那种用之不竭的才情有过逻想，因而她母亲一旦将脐带最后剪断，她便睡不着觉了。一线黎明将天色送进高大的落地长窗，她从床上爬起来，赤裸着双脚走到外面尚有热气的平台上。夜空中传来神秘的声响。网球场那边的树上，一只坏脾气的鸟单调而得意洋洋地叫个不停。旅馆后边沿环形车道响起一阵脚步声，从不同的节奏听得出是走在泥土路上，碎石路上和水泥地上。随后又往回走，接着脚步声消失了。从墨一般的海上望过去，远处矗立着一座山的黑影。那儿住着戴弗夫妇。她想象他们俩在一起的情形，仿佛听到他们在轻轻地哼唱一支歌，这支歌犹如冉冉上升的烟云，犹如一支圣歌，回响在久远的年代和遥远的地方。他们的孩子睡着了，他们的大门在夜里关闭了。
  
