@@ -176,9 +176,37 @@ Surcharged with her emotion she turned to Brady with the intention of confiding 
 
 她满怀激情地转向布雷迪，想要对他说说心里话，但她一提起迪克来，他的双眼就射出凶巴巴的目光，这使她明白他拒绝扮演父亲般的角色。反过来，当他试图独占她的爱情的时候，她也表现出同样的坚决，因而他们只是说些本行业的话，或者很大程度上她听他说些行话。她的眼睛有礼貌地一直看着他，但她如此地心不在焉，连她自己也觉得他肯定能猜出真相了。她偶尔也能听明白他话里的意思，并在下意识里把这些话接下去，犹如一个人在钟声敲到一半时，只是凭心里回荡着的，而起初并未计数的敲击节奏就能继续敲下去一样。
 
+Then came Dick, with his arms full of the slack he had taken up from others, deeply merged in his own party.
 
+Then her mother, forever perfect.
 
+Then Barban talking to her mother with an urbane fluency that made Rosemary like him again. Then Nicole. Rosemary saw her suddenly in a new way and found her one of the most beautiful people she had ever known. Her face, the face of a saint, a viking Madonna, shone through the faint motes that snowed across the candlelight, drew down its flush from the wine-colored lanterns in the pine. She was still as still.
 
+随后是迪克，他从容地掌握着场上的谈话气氛，全神贯注地照料他的小团体。
+
+再过去是母亲，她永远是完美的。
+
+再过去是同她母亲谈话的巴尔邦，他优雅而流畅的谈吐使萝丝玛丽又一次为他心动。再过去是尼科尔。萝丝玛丽突然对她有了新的认识，发现她是她认识的人里面最漂亮的一个。她的脸庞，犹如一位天使的脸庞，北欧圣母的脸庞，在依稀可见的尘埃中闪着光彩。这些尘埃在烛光周围飞扬，从松树上的深红色灯笼中投下一片红光。她仍然是文文静静的。
+
+Next was Campion, managing somehow to restrain his most blatant effeminacy, and even to visit upon those near him a certain disinterested motherliness. Then Mary North with a face so merry that it was impossible not to smile back into the white mirrors of her teeth—the whole area around her parted lips was a lovely little circle of delight.
+
+Finally Brady, whose heartiness became, moment by moment, a social thing instead of a crude assertion and reassertion of his own mental health, and his preservation of it by a detachment from the frailties of others.
+
+Rosemary, as dewy with belief as a child from one of Mrs. Burnett's vicious tracts, had a conviction of homecoming, of a return from the derisive and salacious improvisations of the frontier. There were fireflies riding on the dark air and a dog baying on some low and far-away ledge of the cliff. The table seemed to have risen a little toward the sky like a mechanical dancing platform, giving the people around it a sense of being alone with each other in the dark universe, nourished by its only food, warmed by its only lights. And, as if a curious hushed laugh from Mrs. McKisco were a signal that such a detachment from the world had been attained, the two Divers began suddenly to warm and glow and expand, as if to make up to their guests, already so subtly assured of their importance, so flattered with politeness, for anything they might still miss from that country well left behind. Just for a moment they seemed to speak to every one at the table, singly and together, assuring them of their friendliness, their affection. And for a moment the faces turned up toward them were like the faces of poor children at a Christmas tree. Then abruptly the table broke up—the moment when the guests had been daringly lifted above conviviality into the rarer atmosphere of sentiment, was over before it could be irreverently breathed, before they had half realized it was there.
+
+But the diffused magic of the hot sweet South had withdrawn into them—the soft-pawed night and the ghostly wash of the Mediterranean far below—the magic left these things and melted into the two Divers and became part of them. Rosemary watched Nicole pressing upon her mother a yellow evening bag she had admired, saying, "I think things ought to belong to the people that like them"—and then sweeping into it all the yellow articles she could find, a pencil, a lipstick, a little note book, "because they all go together."
+
+边上是坎布恩，他正多少设法抑制他身上那股明显的女人气，甚至要用带着冷漠的母性态度对待坐在他身旁的人。再过去是玛丽-诺思，她一脸的快乐，面对她一口洁白的牙齿，要不回报她微笑是不可能的——她那张开的嘴唇四周恰似一个优美、欣悦的圆圈。
+
+最边上是布雷迪，他那种直露的态度也渐渐变得随和一些了，不再粗鲁地反复标榜他自己心智健全，也不再声称要疏远他人的弱点来维护这种心智健全。
+
+萝丝玛丽如同伯内特夫人①的一本有争议的小册子里的孩子那样，怀抱纯洁的信念，确信已踏上回家之路，已经从那边远地区可笑和放荡的临时聚居区返回家乡。萤火虫在夜空中飞舞，远处有只狗在悬崖下边的礁石上吠叫。餐桌犹如一座活动舞台，朝星空冉冉上升，坐在餐桌边的人们有一种在漆黑的宇宙中彼此隔绝的感觉，仅靠桌上那点食物果腹，只有桌上那点光亮暖身。这时，麦基斯克夫人的古怪的、压低的笑声像是一个信号，表明他们已经超脱了尘世。戴弗夫妇突然活跃起来，欢声笑语，兴奋无比，仿佛要向那些已经深信自身的尊贵并得到礼遇的客人巴结讨好，以弥补他们在远远抛在后边的世界里未得到的东西。有一阵他们似乎同餐桌边的每一个人说话，或单个或两个一起，证明他们的友善和爱心。这时，那些仰望着他们的面孔犹如望着圣诞树的可怜的孩子们的面孔。然而餐桌突然破裂了——将客人们大胆地提升超出宴饮水平而进入情感的纯净氛围的时刻结束了，这时，他们还来不及细细品味，甚至还没有意识到这一氛围的存在——
+
+但是那炎热、诱人的南风散发出的魔力已侵人他们的身躯——远处是地中海清柔的夜晚和幽幽的波涛——魔力留下夜色和波涛，将它们融人戴弗夫妇身上，并成为他们的一个部分。萝丝玛丽看见尼科尔将一只她母亲看上的晚间用的黄色拎包塞给她，说：“我觉得物品应属于喜欢它的人。”说完便把她能找到的所有黄色物品一古脑儿塞进包里：一枝铅笔、一管口红、一本小巧的日记本。“拿着吧，它们是成套的。”
+
+"Of all the narrow-minded excuses," McKisco looked around to establish a derisive liaison with some one else, but without success. He had no idea what he was up against in Barban, neither of the simplicity of the other man's bag of ideas nor of the complexity of his training. McKisco knew what ideas were, and as his mind grew he was able to recognize and sort an increasing number of them—but faced by a man whom he considered "dumb," one in whom he found no ideas he could recognize as such, and yet to whom he could not feel personally superior, he jumped at the conclusion that Barban was the end product of an archaic world, and as such, worthless. McKisco's contacts with the princely classes in America had impressed upon him their uncertain and fumbling snobbery, their delight in ignorance and their deliberate rudeness, all lifted from the English with no regard paid to factors that make English philistinism and rudeness purposeful, and applied in a land where a little knowledge and civility buy more than they do anywhere else—an attitude which reached its apogee in the "Harvard manner" of about 1900. He thought that this Barban was of that type, and being drunk rashly forgot that he was in awe of him—this led up to the trouble in which he presently found himself.
+
+“多么狭隘的见解，”麦基斯克看看四周，想要找个志同道合者，但没有成功。他不明白在巴尔邦身上他遇到了什么问题，既不是对方将许多观念简单化，亦不是他所受教育的复杂性。麦基斯克知道什么是观念，随着他心智的发展，他能够识别和选择遇到的各种观念——然而，面对一个他认为是“笨蛋”的人，一个在其身上没有他能识别的观念的人，而他对此人又没有个人方面的优越感，他得出结论：巴尔邦是旧时代的最后产物，这样的人毫无价值可言。同美国公子哥儿的接触，麦基斯克有这样的印象：他们的多变、笨拙和势利，他们以无知为乐和故意的粗鲁行为，这一切都是从英国人那儿学来的，而且不考虑那些能转变英国市侩作风和粗鲁行为的因素，就将其运用到这样一块土地上，这儿只需一点儿知识和礼貌便可买到比其它任何地方更多的东西——这种态度的最充分的表现就是二十世纪初的所谓“哈佛作风”。他认为巴尔邦便是那种类型的人。他喝得醉醺醺的，忘了他原本是敬重巴尔邦的——这样就给他带来了麻烦，而此刻他自己也意识到了。
 
 
 
