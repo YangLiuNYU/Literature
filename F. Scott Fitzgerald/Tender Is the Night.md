@@ -208,16 +208,13 @@ But the diffused magic of the hot sweet South had withdrawn into them—the soft
 
 “多么狭隘的见解，”麦基斯克看看四周，想要找个志同道合者，但没有成功。他不明白在巴尔邦身上他遇到了什么问题，既不是对方将许多观念简单化，亦不是他所受教育的复杂性。麦基斯克知道什么是观念，随着他心智的发展，他能够识别和选择遇到的各种观念——然而，面对一个他认为是“笨蛋”的人，一个在其身上没有他能识别的观念的人，而他对此人又没有个人方面的优越感，他得出结论：巴尔邦是旧时代的最后产物，这样的人毫无价值可言。同美国公子哥儿的接触，麦基斯克有这样的印象：他们的多变、笨拙和势利，他们以无知为乐和故意的粗鲁行为，这一切都是从英国人那儿学来的，而且不考虑那些能转变英国市侩作风和粗鲁行为的因素，就将其运用到这样一块土地上，这儿只需一点儿知识和礼貌便可买到比其它任何地方更多的东西——这种态度的最充分的表现就是二十世纪初的所谓“哈佛作风”。他认为巴尔邦便是那种类型的人。他喝得醉醺醺的，忘了他原本是敬重巴尔邦的——这样就给他带来了麻烦，而此刻他自己也意识到了。
 
-
-
 Rosemary dozed for three hours and then lay awake, suspended in the moonshine. Cloaked by the erotic darkness she exhausted the future quickly, with all the eventualities that might lead up to a kiss, but with the kiss itself as blurred as a kiss in pictures. She changed position in bed deliberately, the first sign of insomnia she had ever had, and tried to think with her mother's mind about the question. In this process she was often acute beyond her experience, with remembered things from old conversations that had gone into her half-heard.
 
 萝丝玛丽迷迷糊糊地睡了三个小时，然后静静地躺在床上，任思绪在月光中倘佯。夜色簇拥着她，情思撩人。她对前景很快丧失了信心，她想即便到最后极有可能会亲吻一下，但这个吻会和电影里的吻一样散淡。她在床上悠闲地翻了个身，这是她有生以来第一次失眠的征兆。她试着用她母亲考虑问题的思路去想。在这种情况下，她的敏锐常常超出了她的经历，对过去那些听来的只言片语也能回忆起来。
  
- 
 Rosemary had never done much thinking, save about the illimitability of her mother's perfections, so this final severance of the umbilical cord disturbed her sleep. A false dawn sent the sky pressing through the tall French windows, and getting up she walked out on the terrace, warm to her bare feet. There were secret noises in the air, an insistent bird achieved an ill-natured triumph with regularity in the trees above the tennis court; footfalls followed a round drive in the rear of the hotel, taking their tone in turn from the dust road, the crushed-stone walk, the cement steps, and then reversing the process in going away. Beyond the inky sea and far up that high, black shadow of a hill lived the Divers. She thought of them both together, heard them still singing faintly a song like rising smoke, like a hymn, very remote in time and far away. Their children slept, their gate was shut for the night.
  
- 萝丝玛丽向来懒得动脑，除了对她母亲那种用之不竭的才情有过逻想，因而她母亲一旦将脐带最后剪断，她便睡不着觉了。一线黎明将天色送进高大的落地长窗，她从床上爬起来，赤裸着双脚走到外面尚有热气的平台上。夜空中传来神秘的声响。网球场那边的树上，一只坏脾气的鸟单调而得意洋洋地叫个不停。旅馆后边沿环形车道响起一阵脚步声，从不同的节奏听得出是走在泥土路上，碎石路上和水泥地上。随后又往回走，接着脚步声消失了。从墨一般的海上望过去，远处矗立着一座山的黑影。那儿住着戴弗夫妇。她想象他们俩在一起的情形，仿佛听到他们在轻轻地哼唱一支歌，这支歌犹如冉冉上升的烟云，犹如一支圣歌，回响在久远的年代和遥远的地方。他们的孩子睡着了，他们的大门在夜里关闭了。
+萝丝玛丽向来懒得动脑，除了对她母亲那种用之不竭的才情有过逻想，因而她母亲一旦将脐带最后剪断，她便睡不着觉了。一线黎明将天色送进高大的落地长窗，她从床上爬起来，赤裸着双脚走到外面尚有热气的平台上。夜空中传来神秘的声响。网球场那边的树上，一只坏脾气的鸟单调而得意洋洋地叫个不停。旅馆后边沿环形车道响起一阵脚步声，从不同的节奏听得出是走在泥土路上，碎石路上和水泥地上。随后又往回走，接着脚步声消失了。从墨一般的海上望过去，远处矗立着一座山的黑影。那儿住着戴弗夫妇。她想象他们俩在一起的情形，仿佛听到他们在轻轻地哼唱一支歌，这支歌犹如冉冉上升的烟云，犹如一支圣歌，回响在久远的年代和遥远的地方。他们的孩子睡着了，他们的大门在夜里关闭了。
  
 Rosemary stood breathless as the voices moved away. She was at first even astonished—she had seen them in their relation to each other as people without personal exigencies—as something cooler. Now a strong current of emotion flowed through her, profound and unidentified. She did not know whether she was attracted or repelled, but only that she was deeply moved. It made her feel very alone as she went back into the restaurant, but it was touching to look in upon, and the passionate gratitude of Nicole's "Oh, do I!" echoed in her mind. The particular mood of the passage she had witnessed lay ahead of her; but however far she was from it her stomach told her it was all right—she had none of the aversion she had felt in the playing of certain love scenes in pictures.
  
@@ -233,7 +230,7 @@ With Nicole’s help Rosemary bought two dresses and two hats and four pairs of 
 
 "Good night, dear Dick." Mary smiled as if she were going to be perfectly happy sitting there on the almost deserted boat. She was a brave, hopeful woman and she was following her husband somewhere, changing herself to this kind of person or that, without being able to lead him a step out of his path, and sometimes realizing with discouragement how deep in him the guarded secret of her direction lay. And yet an air of luck clung about her, as if she were a sort of token … .
 
-　“晚安，亲爱的迪克。”玛丽微笑着，好像她坐在这条空荡荡的船上会十分地快活。她是个勇敢的、有前途的女子，从某些方面来说她追随她的丈夫，改变自己来适应这种人或那种人，而并不能够让他偏离他的道路一步。有时她沮丧地意识到，她秘而不宣的自己的前程已深深地寄放在他的身上了，然而她身上有一股吉祥之气，仿佛她是一种象征…
+“晚安，亲爱的迪克。”玛丽微笑着，好像她坐在这条空荡荡的船上会十分地快活。她是个勇敢的、有前途的女子，从某些方面来说她追随她的丈夫，改变自己来适应这种人或那种人，而并不能够让他偏离他的道路一步。有时她沮丧地意识到，她秘而不宣的自己的前程已深深地寄放在他的身上了，然而她身上有一股吉祥之气，仿佛她是一种象征…
 
 In the dark cave of the taxi, fragrant with the perfume Rosemary had bought with Nicole, she came close again, clinging to him. He kissed her without enjoying it. He knew that there was passion there, but there was no shadow of it in her eyes or on her mouth; there was a faint spray of champagne on her breath. She clung nearer desperately and once more he kissed her and was chilled by the innocence of her kiss, by the glance that at the moment of contact looked beyond him out into the darkness of the night, the darkness of the world. She did not know yet that splendor is something in the heart; at the moment when she realized that and melted into the passion of the universe he could take her without question or regret.
 
@@ -271,14 +268,29 @@ They were still in the happier stage of love. They were full of brave illusions 
  
 他们仍沉溺于爱的欢欣之中。他们都对对方抱着大胆的幻想，无数的幻想，因而这一个自我与那一个自我的沟通似乎是在一个同其他人类关系不相干的地方进行的。他们似乎不明不白地来到此地，仿佛是一系列纯粹偶然的事件驱使他们走到了一起，竟有这么多偶然事件，以致到最后他们不得不得出结论，他们都是为对方而来的。他们清清白白来到这儿，或者说看起来像是这样，事先并没有仅出于好奇或偷偷相会过。
 
+Although the Divers were honestly apathetic to organized fashion, they were nevertheless too acute to abandon its contemporaneous rhythm and beat—Dick's parties were all concerned with excitement, and a chance breath of fresh night air was the more precious for being experienced in the intervals of the excitement.
+
+The party that night moved with the speed of a slapstick comedy. They were twelve, they were sixteen, they were quartets in separate motors bound on a quick Odyssey over Paris. Everything had been foreseen. People joined them as if by magic, accompanied them as specialists, almost guides, through a phase of the evening, dropped out and were succeeded by other people, so that it appeared as if the freshness of each one had been husbanded for them all day. Rosemary appreciated how different it was from any party in Hollywood, no matter how splendid in scale. There was, among many diversions, the car of the Shah of Persia. Where Dick had commandeered this vehicle, what bribery was employed, these were facts of irrelevance. Rosemary accepted it as merely a new facet of the fabulous, which for two years had filled her life. The car had been built on a special chassis in America. Its wheels were of silver, so was the radiator. The inside of the body was inlaid with innumerable brilliants which would be replaced with true gems by the court jeweller when the car arrived in Teheran the following week. There was only one real seat in back, because the Shah must ride alone, so they took turns riding in it and sitting on the marten fur that covered the floor.
+
+虽然戴弗夫妇对人为的时尚向来兴趣不大，然而他们非常敏锐，不会放过时尚所带来的节奏和韵律——迪克圈子里的人都喜欢热闹，如果在寻欢作乐的空隙有机会呼吸一下夜晚清新的空气就更好了。
+
+快天晚上的聚会仿佛是上演一出滑稽喜剧。先是十二人，后来变成十六人，他们四人一伙开着车在巴黎兜风。人们着了魔似的参与进来，像专家甚至导游一样陪伴着他们，度过晚上的一段时光，随即又消失了踪影，被其他人取代。人们似乎整天都在为这一良宵养精蓄锐。萝丝玛丽由衷地感到这与好莱坞的聚会有多么地不同，尽管后者的规模要宏大得多。有许多的娱乐活动，还有一辆波斯国王的汽车。迪克从哪儿搞来这部车子，用了什么贿赂手段，这些都无关紧要。萝丝玛丽只当它又是一个稀奇玩艺儿，过去两年里，新奇的玩艺她见多了。汽车是在美国产的一种特殊底盘上组装成的。车轮是银制的，散热器也是。车厢里镶嵌了无数的钻石，当这辆车下星期抵达德黑兰①时，这些钻石就会被宫廷珠宝匠用真正的宝石替换。后面只有一个真正的座位，因为国王乘车外出必须一人独坐，所以他们轮流坐进去，在那铺满地板的貉皮上坐坐
+
+But always there was Dick. Rosemary assured the image of her mother, ever carried with her, that never, never had she known any one so nice, so thoroughly nice as Dick was that night. She compared him with the two Englishmen, whom Abe addressed conscientiously as "Major Hengest and Mr. Horsa," and with the heir to a Scandinavian throne and the novelist just back from Russia, and with Abe, who was desperate and witty, and with Collis Clay, who joined them somewhere and stayed along—and felt there was no comparison. The enthusiasm, the selflessness behind the whole performance ravished her, the technic of moving many varied types, each as immobile, as dependent on supplies of attention as an infantry battalion is dependent on rations, appeared so effortless that he still had pieces of his own most personal self for everyone.
+
+但总是离不开迪克。萝丝玛丽可以对她一直带在身边的母亲的肖像保证：她从来，从来没有见过有谁像这天晚上的迪克那样优雅，简直优雅极了。她将迪克同两个英国人相比，艾贝谨慎地称这两个英国人为亨吉斯特少校和霍尔瑟先生。她还将迪克同斯堪的纳维亚的一位王储和某个刚从俄罗斯回来的小说家相比。还同毫无顾忌、诙谐有趣的艾贝相比，同科利斯-克莱相比，他也搀和进来并呆在一起——她觉得他们都比不上他。迪克在整个夜间活动中表现出来的热情和慷慨让她入迷。他具有调动许多不同类型的人的本领，这些人缺乏主动性，像军队的步兵依赖给养那样依赖他的关照。迪克似乎能够毫不费力地这么做，且仍能将最具有个人化的自我奉献给每一个人—
 
 Afterward she remembered the times when she had felt the happiest. The first time was when she and Dick danced together and she felt her beauty sparkling bright against his tall, strong form as they floated, hovering like people in an amusing dream—he turned her here and there with such a delicacy of suggestion that she was like a bright bouquet, a piece of precious cloth being displayed before fifty eyes. There was a moment when they were not dancing at all, simply clinging together. Some time in the early morning they were alone, and her damp powdery young body came up close to him in a crush of tired cloth, and stayed there, crushed against a background of other people's hats and wraps… 
 
 日后她回忆起她感到的那些最幸福的时刻。第一次是她和迪克一起跳舞。他高大健壮，她则妩媚，光彩照人。他们翩翩起舞，犹如在甜蜜的梦幻中倘佯——他带着她满场子转，巧妙地向人暗示，她就像一束艳丽的鲜花，一块华贵的布料展现在那二十五个人眼前。有一刻，他们似乎停下来不再跳舞，只是紧紧地偎依在一起。清晨的某个时辰，他们单独呆着，她汗津津的搽过粉的娇躯紧贴着他，他的衣服被揉得皱巴巴的，他们在挂着别人的帽子和外套的地方拥抱…
 
+She felt a little betrayed and sad, but presently a moving object came into sight. It was a huge horse-chestnut tree in full bloom bound for the Champs Élysées, strapped now into a long truck and simply shaking with laughter—like a lovely person in an undignified position yet confident none the less of being lovely. Looking at it with fascination Rosemary identified herself with it, and laughed cheerfully with it, and everything all at once seemed gorgeous.
+
+她觉得自己有点误入歧途，于是伤感起来，但这时一个活动的场面映人眼帘。这是一棵巨大的七叶树，开满了花，正被运往香榭里舍大街。树虽被缚在一辆长长的卡车上。但枝叶欢快地摆动着——犹如一个高尚的人身处逆境，仍对自己的高尚充满自信。萝丝玛丽出神地看着这棵树，不禁把自己当作这棵树，因而快乐地大笑起来，顷刻之间，一切都显得那么美好。
+
 They stood in an uncomfortable little group weighted down by Abe's gigantic presence: he lay athwart them like the wreck of a galleon, dominating with his presence his own weakness and self-indulgence, his narrowness and bitterness. All of them were conscious of the solemn dignity that flowed from him, of his achievement, fragmentary, suggestive and surpassed. But they were frightened at his survivant will, once a will to live, now become a will to die.
 
-　这一群人站在那儿，由于艾贝高大的身躯而显得有些不协调。他背对着她们，活像一艘古代大帆船的残骸。他倚仗这高大的身躯来制约他的软弱，他的自我放纵，他的褊狭和他的痛苦。她们都能感受到从他身上透露出来的那种高贵的气质，都清楚他取得的成就，他的成就是断断续续的，有启发性的，当然已被人超越了，但是，她们担惊受怕的还是他尚存的那种意愿，过去这是一种去活的意愿，而如今变成了一种去死的意愿。
+这一群人站在那儿，由于艾贝高大的身躯而显得有些不协调。他背对着她们，活像一艘古代大帆船的残骸。他倚仗这高大的身躯来制约他的软弱，他的自我放纵，他的褊狭和他的痛苦。她们都能感受到从他身上透露出来的那种高贵的气质，都清楚他取得的成就，他的成就是断断续续的，有启发性的，当然已被人超越了，但是，她们担惊受怕的还是他尚存的那种意愿，过去这是一种去活的意愿，而如今变成了一种去死的意愿。
  
 He knew that what he was now doing marked a turning point in his life—it was out of line with everything that had preceded it—even out of line with what effect he might hope to produce upon Rosemary. Rosemary saw him always as a model of correctness—his presence walking around this block was an intrusion. But Dick's necessity of behaving as he did was a projection of some submerged reality: he was compelled to walk there, or stand there, his shirt-sleeve fitting his wrist and his coat sleeve encasing his shirt-sleeve like a sleeve valve, his collar molded plastically to his neck, his red hair cut exactly, his hand holding his small briefcase like a dandy—just as another man once found it necessary to stand in front of a church in Ferrara, in sackcloth and ashes. Dick was paying some tribute to things unforgotten, unshriven, unexpurgated.
  
@@ -290,7 +302,7 @@ After three-quarters of an hour of standing around, he became suddenly involved 
 
 Back at two o'clock in the Roi George corridor the beauty of Nicole had been to the beauty of Rosemary as the beauty of Leonardo's girl was to that of the girl of an illustrator. Dick moved on through the rain, demoniac and frightened, the passions of many men inside him and nothing simple that he could see.
 
-　回想下午两点时，在乔治王旅馆的阳台上，尼科尔的美丽辉映着萝丝玛丽的美丽，犹如达-芬奇的蒙娜丽莎对应插图画家笔下的美人。迪克在雨中前行，心神狂乱，惊惧不定，他内心翻腾着许多男子的激情，他明白事情不会简单。
+回想下午两点时，在乔治王旅馆的阳台上，尼科尔的美丽辉映着萝丝玛丽的美丽，犹如达-芬奇的蒙娜丽莎对应插图画家笔下的美人。迪克在雨中前行，心神狂乱，惊惧不定，他内心翻腾着许多男子的激情，他明白事情不会简单。
  
 Rosemary opened her door full of emotions no one else knew of. She was now what is sometimes called a "little wild thing"—by twenty-four full hours she was not yet unified and she was absorbed in playing around with chaos; as if her destiny were a picture puzzle—counting benefits, counting hopes, telling off Dick, Nicole, her mother, the director she met yesterday, like stops on a string of beads.
 
