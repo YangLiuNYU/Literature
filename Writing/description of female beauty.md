@@ -44,3 +44,19 @@ She’s not a shy person. Her body language is eloquent enough: "I am aware that
 
 A girl stood before him in midstream, alone and still, gazing out to sea. She seemed like one whom magic had changed into the likeness of a strange and beautiful seabird. Her long slender bare legs were delicate as a crane’s and pure save where an emerald trail of seaweed had fashioned itself as a sign upon the flesh. Her thighs, fuller and soft-hued as ivory, were bared almost to the hips, where the white fringes of her drawers were like feathering of soft white down. Her slate-blue skirts were kilted boldly about her waist and dovetailed behind her. Her bosom was as a bird’s, soft and slight, slight and soft as the breast of some dark-plumaged dove. But her long fair hair was girlish: and girlish, and touched with the wonder of mortal beauty, her face.
 
+=============
+
+A lovely nook of forest scenery, or a grand rock, like a beautiful woman, depends for much of its attractiveness upon the attendance sense of freedom from whatever is low; upon a sense of purity and of romance. 
+
+=============
+
+She walks in beauty, like the night.
+
+=============
+
+Never had Madame Bovary been so beautiful as at this period; she had that indefinable beauty that results from joy, from enthusiasm, from success, and that is only the harmony of temperament with circumstances. Her desires, her sorrows, the experience of pleasure, and her ever-young illusions, that had, as soil and rain and winds and the sun make flowers grow, gradually developed her, and she at length blossomed forth in all the plenitude of her nature.
+
+=============
+
+“Eleanor was right. She never looked nice. She looked like art, and art wasn't supposed to look nice; it was supposed to make you feel something.” ― Rainbow Rowell, Eleanor & Park
+
