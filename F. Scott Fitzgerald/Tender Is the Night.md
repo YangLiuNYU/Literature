@@ -291,6 +291,18 @@ She felt a little betrayed and sad, but presently a moving object came into sigh
 They stood in an uncomfortable little group weighted down by Abe's gigantic presence: he lay athwart them like the wreck of a galleon, dominating with his presence his own weakness and self-indulgence, his narrowness and bitterness. All of them were conscious of the solemn dignity that flowed from him, of his achievement, fragmentary, suggestive and surpassed. But they were frightened at his survivant will, once a will to live, now become a will to die.
 
 这一群人站在那儿，由于艾贝高大的身躯而显得有些不协调。他背对着她们，活像一艘古代大帆船的残骸。他倚仗这高大的身躯来制约他的软弱，他的自我放纵，他的褊狭和他的痛苦。她们都能感受到从他身上透露出来的那种高贵的气质，都清楚他取得的成就，他的成就是断断续续的，有启发性的，当然已被人超越了，但是，她们担惊受怕的还是他尚存的那种意愿，过去这是一种去活的意愿，而如今变成了一种去死的意愿。
+
+Nearby, some Americans were saying good-by in voices that mimicked the cadence of water running into a large old bathtub. Standing in the station, with Paris in back of them, it seemed as if they were vicariously leaning a little over the ocean, already undergoing a sea-change, a shifting about of atoms to form the essential molecule of a new people.
+
+So the well-to-do Americans poured through the station onto the platforms with frank new faces, intelligent, considerate, thoughtless, thought-for. An occasional English face among them seemed sharp and emergent. When there were enough Americans on the platform the first impression of their immaculacy and their money began to fade into a vague racial dusk that hindered and blinded both them and their observers.
+
+不远处，有些美国人在话别，那说话声宛如一只巨大而陈旧的澡盆里的汩汩流水声。置身在车站内，背后就是巴黎，看起来就好像他们不是在车站，而正微微探身面对大海。为造就一个新兴民族，他们正经历一场巨变，一种脱胎换骨。
+
+于是这些有钱的美国人蜂拥进入车站，来到站台，一张张陌生的面孔神态各异，有的坦率，有的聪颖，有的谨慎，有的一副蠢相，有的则莫测高深。他们中间偶尔闪过一张英国人的脸，那么冷峻和匆忙。当站台上充塞着美国人，那么对他们的率直和富裕产生的第一印象便会融进一片模糊的种族的阴影之中，这片阴影挡住了他们和他们的观察者的视线，损害了双方的判断力。
+
+For the first time the mention of her mother annoyed rather than amused Dick. He wanted to sweep away her mother, remove the whole affair from the nursery footing upon which Rosemary persistently established it. But he realized that this impulse was a loss of control—what would become of Rosemary's urge toward him if, for even a moment, he relaxed. He saw, not without panic, that the affair was sliding to rest; it could not stand still, it must go on or go back; for the first time it occurred to him that Rosemary had her hand on the lever more authoritatively than he.
+
+这还是第一次，萝丝玛丽提到她母亲使迪克感到不快而不是高兴。他要抛开她母亲，要整个儿改变这桩风流韵事受某种监护的状态，而萝丝玛丽始终立足于这种状态，但他意识到，这一种冲动是失去控制的表现——萝丝玛丽对他的欲求会发展到什么程度，如果他放松，哪怕只是一会儿。他不无惊慌地看出，这件事渐渐地平稳下来，但这种事是不可能静止不变的，它要么继续，要么后退。他也第一次意识到，要说掌握这种事的操纵杆，萝丝玛丽比他更有权威性。
  
 He knew that what he was now doing marked a turning point in his life—it was out of line with everything that had preceded it—even out of line with what effect he might hope to produce upon Rosemary. Rosemary saw him always as a model of correctness—his presence walking around this block was an intrusion. But Dick's necessity of behaving as he did was a projection of some submerged reality: he was compelled to walk there, or stand there, his shirt-sleeve fitting his wrist and his coat sleeve encasing his shirt-sleeve like a sleeve valve, his collar molded plastically to his neck, his red hair cut exactly, his hand holding his small briefcase like a dandy—just as another man once found it necessary to stand in front of a church in Ferrara, in sackcloth and ashes. Dick was paying some tribute to things unforgotten, unshriven, unexpurgated.
  
@@ -341,11 +353,11 @@ Within the building a trio broke into Suppe's "Light Cavalry." Nicole took advan
 
 He was late the next time, a week later, and Nicole was waiting for him at a point in the path which he would pass walking from Franz's house. Her hair drawn back of her ears brushed her shoulders in such a way that the face seemed to have just emerged from it, as if this were the exact moment when she was coming from a wood into clear moonlight. The unknown yielded her up; Dick wished she had no background, that she was just a girl lost with no address save the night from which she had come. They went to the cache where she had left the phonograph, turned a corner by the workshop, climbed a rock, and sat down behind a low wall, facing miles and miles of rolling night.
 
-　他们一路散着步，她那套奶色衣服一会现出蓝色，一会又成了灰色。她的一头金发颇使迪克眼花——每当他转过脸来，她总是嫣然一笑。他们走进路边一座拱形凉亭时，她容光焕发，犹如一位天使。她感谢他为她做的一切，就好像是他带她参加了一个晚会。当迪克对他们之间的关系越来越感到没有把握的时候，她的信心却在增长——她神采飞扬，似乎整个世界也骚动兴奋起来。
+他们一路散着步，她那套奶色衣服一会现出蓝色，一会又成了灰色。她的一头金发颇使迪克眼花——每当他转过脸来，她总是嫣然一笑。他们走进路边一座拱形凉亭时，她容光焕发，犹如一位天使。她感谢他为她做的一切，就好像是他带她参加了一个晚会。当迪克对他们之间的关系越来越感到没有把握的时候，她的信心却在增长——她神采飞扬，似乎整个世界也骚动兴奋起来。
 
-　　“我不用受什么约束了，”她说，“我给你放两支好歌，叫做《等到牛群回家》和《再见，亚历山大》。”
+“我不用受什么约束了，”她说，“我给你放两支好歌，叫做《等到牛群回家》和《再见，亚历山大》。”
 
-　　一星期后，第二次约会他去晚了，尼科尔在他从弗朗茨家里出来经过的路上等他。她的头发拢在耳后，披在肩上，这式样使她的脸显得像是刚从秀发中钻出来一样，就如同此时此刻，她从树林中走出来到皎洁的月光之下。一个无人知晓的东西造就了她。迪克希望她没有背景，她只是一个不知如何回家的迷途姑娘，有的只是她身后的那片黑暗。他们朝她藏唱片的地方走去，在工作间附近拐个弯，爬上一块岩石，在一堵矮墙后边坐了下来，面对着茫茫夜色。
+一星期后，第二次约会他去晚了，尼科尔在他从弗朗茨家里出来经过的路上等他。她的头发拢在耳后，披在肩上，这式样使她的脸显得像是刚从秀发中钻出来一样，就如同此时此刻，她从树林中走出来到皎洁的月光之下。一个无人知晓的东西造就了她。迪克希望她没有背景，她只是一个不知如何回家的迷途姑娘，有的只是她身后的那片黑暗。他们朝她藏唱片的地方走去，在工作间附近拐个弯，爬上一块岩石，在一堵矮墙后边坐了下来，面对着茫茫夜色。
   
 He was enough older than Nicole to take pleasure in her youthful vanities and delights, the way she paused fractionally in front of the hall mirror on leaving the restaurant, so that the incorruptible quicksilver could give her back to herself. He delighted in her stretching out her hands to new octaves now that she found herself beautiful and rich. He tried honestly to divorce her from any obsession that he had stitched her together--glad to see her build up happiness and confidence apart from him; the difficulty was that, eventually, Nicole brought everything to his feet, gifts of sacrificial ambrosia, of worshipping myrtle.
 
