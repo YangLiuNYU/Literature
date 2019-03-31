@@ -61,3 +61,41 @@ They must discover for themselves that all they have read and all they have been
 
 他们必须自己发现，所有他们读到的、听到的东西，都是谎言、谎言、谎言。每一次的这样的发现，都像是另一根钉子钉入他们的身体，那被束缚在生活的十字架上的身体。可是奇怪的是，每个曾经被这种错觉折磨过的人，轮到他们时，有一种不可控制的力量，让他们不自觉地为别人增添这种错觉。
 
+Everyone has a bank. Its name is TIME. Every morning, it credits you with 86,400 seconds. Every night it writes off, as lost, whatever of this you have failed to invest to good purpose. It carries over no balance. It allows no overdraft.每个人都有一个银行，它的名字叫"时间"。每天早晨，它在你的帐户里存入86,400秒钟。不管你是否很好地利用了这笔时间，每天晚上它会照例把这笔时间作为遗失注销。它没有设置余额，也不允许透支。
+
+Each day it opens a new account for you. Each night it burns the records of the day. If you fail to use the day's deposits, the loss is yours.每天它会为你开一个新帐户，每晚它会把该天的记录全部删除。如果你没有好好地利用当天的这笔时间关于时间的散文，那么损失由你自己承担。
+
+There is no going back. There is no drawing against the "tomorrow". You must live in the present on today's deposits. Invest it so as to get from it the utmost in health, happiness and success! The clock is running. Make the most of today: "Seize the day!" 没有回头路，也不能向"明天"借时间。你必须以今天的时间"存款"为基础生活在现在现在做什么生意赚钱。有效地投资这笔时间以便从中获取有关健康，快乐及成功最大的收益。时钟正在旋转。好好地利用今天："抓住每一天！"（散文 http://yuedu.mipang.com）
+
+So, you see, time is important, make the most of it. After all, life is either a daring adventure or nothing! 你看，时间挺重要的吧，一定要好好利用它。毕竟，生活要么是大胆的尝试，要么就什么都没有。
+
+Treasure every moment that you have! And treasure it more because you shared it with someone special, special enough to have your time. And remember time waits for none. 珍惜你所拥有的每一分钟三分钟励志故事！你要更加珍惜它，因为你与某个特殊的朋友一起在分享它，这位朋友特殊到拥有你的时间。记住：时间不等人。
+
+Love plays a pivotal role in our life. Love makes you feel wanted. Without love a person could go haywire and also become cruel and ferocious. In the early stage of our life, our parents are the ones who showed us with unconditional love and care, they teach us about what is right and wrong, good and bad. But we always tend to take this for granted.It is only after marriage and having kids that a person understands and becomes sensitive to others feelings. Kids make a person responsible and mature and help us to understand life better. 爱在生活之外扮演了一个关键的角色。爱使你想要得到些什么。没有爱,一个人将走向不归路,变得凶暴、残忍。在我们最初的人生道路上,我们的父母给予了我们无条件的关爱,他们教会我们判断正确与错误、好与坏。然而我们常常把这想当然了,只有等到我们结了婚并且有了孩子之后,一个人才会懂得并注意别人的感受。 孩子让我们变得富有责任心、变得成熟稳重,并且更好的理解人生。
+
+Materialistic happiness is short-lived, but happiness achieved by bringing a smile on others face gives a certain level of fulfillment. Peace of mind is the main link to happiness. No mind is happy without peace. We realize the true worth of happiness when we are in sorrow. Sorrow is basically due to death of a loved one, failure and despair. But these things are temporary and pass away. 物质上的快乐往往是短暂的,然而,当你给予他人一个微笑生活需要微笑的时候,那种满足却是无与伦比的。心灵的平静往往是快乐的源泉。没有平和的心态就没有快乐的心情。 在伤心的时候,我们往往能够体会到快乐的真谛。悲伤基本都来自于一个爱人的去世、失败还有绝望,但是这样的事情都是暂时的,总会过去的。
+
+Failure is the path to success. It helps us to touch the sky, teaches us to survive and shows us a specific way. Success brings in money, fame, pride and self-respect. Here it becomes very important to keep our head on our shoulder. The only way to show our gratitude to God for bestowing success on us is by being humble, modest, courteous and respectful to the less fortunate ones. 失败是成功之母。它让我们触及蓝天,它教会我们如何生存,它给予我们一条特殊的路。成功给予我们金钱、名誉、骄傲和自尊。这里,保持头脑清醒便显得尤为重要团队精神的重要性。唯一能让我们感激上帝给予的成功便是始终卑微、谦虚、礼貌并且尊重没有我们幸运的人们。
+
+Hope is what keeps life going. Parents always hope their children will do well. Hope makes us dream. Hope builds in patience. Life teaches us not to despair even in the darkest hour, because after every night there is a day. Nothing remains the same we have only one choice - keep moving on in life and be hopeful. 希望是人生动力之源。父母总是希望自己的孩子能够做得很好。希望使我们有梦想。希望使我们变得有耐心。人生教会我们即使是在最困难的时候都不要绝望,因为黑暗之后终将是黎明。没有什么事一成不变的,我们惟有充满希望地继续生活。
+
+Life teaches us not to regret over yesterday, for it has passed and is beyond our control. Tomorrow is unknown, for it could either be bright or dull. So the only alternative is work hard today, so that we will enjoy a better tomorrow. 人生教会我们不要对过去的事感到后悔,因为过去的终究是过去了并且我们已无法控制。没人知道明天会是怎样,因为它可以是光明的同样也可以是无趣的。所以,唯一的选择便是在今天努力工作,这样才能让我们去享受更美好的明天。
+
+Though there is much to be concerned about, there is far, far more for which to be thankful. Though life's goodness can at times be overshadowed, it is never outweighed. 尽管有很多事让人忧虑，但相比而言，值得感激的事要多得多。尽管生命的美好有时被蒙上阴影，但它却永远不会被埋没。
+
+For every single act that is senselessly destructive, there are thousands more small, quiet acts of love, kindness and compassion. For every person who seeks to hurt, there are many, many more who devote their lives to helping and to healing. 相对于每一个无谓的破坏行为而言，都有更多数以千计更为微小的，包含着爱，友善和同情的举动静静地上演着。相对于每一个试图伤害他人的人而言，都有更多的人致力于帮助二年级作文帮助别人他人，治愈他人的创伤。
+
+There is goodness to life that cannot be denied. In the most magnificent vistas and in the smallest details, look closely, for that goodness always comes shining through. 生命的美好不能否认。在最为壮观的前景和最为琐碎的细节中，请仔细观察，因为美好的事物总是散发着耀眼的光芒闪亮登场。
+
+There is no limit to the goodness of life. It grows more abundant with each new encounter. The more you experience and appreciate the goodness of life, the more there is to be lived. 生命的美好没有界限。每一次相遇都会使这美好美好回忆的句子变得越发丰富。你经历得越多，越能欣赏生命的美好，生命中的美好就会变得越多。
+
+Even when the cold winds blow and the world seems to be covered in foggy shadows, the goodness of life lives on. Open your eyes, open your heart, and you will see that goodness is everywhere. 即使当寒风袭来，整个世界似乎被雾气掩盖之时，生命的美好仍会存在。睁开双眼，打开心扉，你就会发现这美好无处不在。
+
+Though the goodness of life seems at times to suffer setbacks, it always endures. For in the darkest moment it becomes vividly clear that life is a priceless treasure. And so the goodness of life is made even stronger by the very things that would oppose it. 尽管生命的美好有时似乎遭受挫折，但它总会挺过来。因为，在最黑暗的时刻，有一点变得格外清楚，那就是，生命是无价的财富。因此，下正是与生命的美好相对立的事物使其越发强大。
+
+Time and time again when you feared it was gone forever you found that the goodness of life was really only a moment away. Around the next corner, inside every moment, the goodness of life is there to surprise and delight you. 无数次地，当你担心这美好已经远离之时，你会发现生命的美好其实只与你相隔须臾。它就在下一角落，存在于每个时刻之间，等着给你惊喜。
+
+Take a moment to let the goodness of life touch your spirit and calm your thoughts. Then, share your good fortune with another. For the goodness of life grows more and more magnificent each time it is given away. 花些时间让生命生命哲理散文的美好感动自己的灵魂，放松自己的思绪。然后，把你的幸运与他人分享。因为生命的美好会在每次给予之间变得越来越壮观。
+
+Though the problems constantly scream for attention and the conflicts appear to rage ever stronger, the goodness of life grows stronger still, quietly, peacefully, with more purpose and meaning than ever before. 尽管总是有问题让你去关注，冲突也似乎愈演愈烈，但生命的美好却总是静静地，平和地，带着比以往更强的意志和更多的价值变得更加强大。
+
