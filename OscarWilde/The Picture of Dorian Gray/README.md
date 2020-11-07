@@ -27,3 +27,66 @@ Those who are faithful know only the trivial side of love: it is the faithless w
 
 # Chapter 02
 
+‘There is no such thing as a good influence, Mr Gray. All influence is immoral – immoral from the scientific point of view.’
+
+‘Why?’
+
+‘Because to influence a person is to give him one’s own soul. He does not think his natural thoughts, or burn with his natural passions. His virtues are not real to him. His sins, if there are such things as sins, are borrowed. He becomes an echo of some one else’s music, an actor of a part that has not been written for him. The aim of life is self-development. To realize one’s nature perfectly – that is what each of us is here for. People are afraid of themselves, nowadays. They have forgotten the highest of all duties, the duty that one owes to one’s self. Of course they are charitable. They feed the hungry, and clothe the beggar. But their own souls starve, and are naked. Courage has gone out of our race. Perhaps we never really had it. The terror of society, which is the basis of morals, the terror of God, which is the secret of religion – these are the two things that govern us. And yet –’
+
+“世上并没有好影响这样的东西，格雷先生。一切影响都是不道德的——从科学的观点看，不道德。”
+
+“为什么？”
+
+“因为去影响一个人就是把自己的灵魂给了他。他便不会按天性去思考，或者按天性燃起自己的激情。他的美德不真实。他的罪过，要是有的话，也是借来的。他成了别人的音乐的回声，成了这么个演员，扮演着剧本中没有为他而写的角色。生活的目的在于自我发展。充分实现自己的天性——是我们每个人来到世间的目的。如今，人们倒怕起自己来了，忘记了他们的最高职责，也就是对自己应负的责任。当然，他们很慈悲，让饿肚子的吃饱，让要饭的有衣穿。但他们自己的灵魂却在挨饿，赤裸裸一无遮拦。我们的民族失去了勇气，也许从来就并未真有过勇气。害怕社会是道德的基础，害怕上帝是宗教的秘密，就是这两者支配着我们。但是——”
+
+‘And yet,’ continued Lord Henry, in his low, musical voice, and with that graceful wave of the hand that was always so characteristic of him, and that he had even in his Eton days,3 ‘I believe that if one man were to live out his life fully and completely, were to give form to every feeling, expression to every thought, reality to every dream – I believe that the world would gain such a fresh impulse of joy that we would forget all the maladies of mediævalism, and return to the Hellenic ideal – to something finer, richer, than the Hellenic ideal, it may be. But the bravest man amongst us is afraid of himself. The mutilation of the savage has its tragic survival in the self-denial that mars our lives.4 We are punished for our refusals. Every impulse that we strive to strangle broods in the mind, and poisons us. The body sins once, and has done with its sin, for action is a mode of purification. Nothing remains then but the recollection of a pleasure, or the luxury of a regret. The only way to get rid of a temptation is to yield to it. Resist it, and your soul grows sick with longing for the things it has forbidden to itself, with desire for what its monstrous laws have made monstrous and unlawful. It has been said that the great events of the world take place in the brain. It is in the brain, and the brain only, that the great sins of the world take place also. You, Mr Gray, you yourself, with your rose-red youth and your rose-white boyhood, you have had passions that have made you afraid, thoughts that have filled you with terror, day-dreams and sleeping dreams whose mere memory might stain your cheek with shame –’
+
+“但是，”亨利勋爵又往下说，嗓子低沉悦耳。同时他还很有风度地挥了一下手，那是他的一个典型动作，在伊顿公学念书的日子就有了。“我相信，人的一生要是活得充分彻底。人要是抒发一切感情，表达一切思想，实现所有的梦想——我相信，世界将沉浸于新的喜悦之中，于是我们会忘掉中世纪时代的一切弊病，回到希腊的理想中去——也许是一种比希腊的理想更好、更丰富的东西。但我们中的最勇敢分子也害怕自己。那种野蛮自残式的过分克己，不幸还存在，使生活大为减色。我们因为自我克制而遭到了惩罚。想要压制的每个冲动都在头脑中酝酿着，并毒害我们。肉体一旦犯罪，便与罪孽无·缘，因为行动是一种净化的方式。除了回忆的愉悦，悔恨的奢侈，什么都没有留下。摆脱诱惑的惟一办法是向诱惑投降。倘若抵制，灵魂就会得病，病因便是渴望自己所不允的东西，企求那些可怕的法律使其变得可怕和非法的东西。据说，世上的伟大都发自脑袋。在脑袋里，也只有在脑袋里，产生了世间的大罪大恶。你，格雷先生，拿你自己来说吧，你的青年时代像玫瑰一样红，少年时代像玫瑰一样白，你曾产生过让自己害怕的激情，有过令你胆战心惊的念头，做过白梦和夜间梦，只要一想起这些梦来，你会满脸愧色——”
+
+For nearly ten minutes he stood there, motionless, with parted lips, and eyes strangely bright. He was dimly conscious that entirely fresh influences were at work within him. Yet they seemed to him to have come really from himself. The few words that Basil’s friend had said to him – words spoken by chance, no doubt, and with wilful paradox in them – had touched some secret chord that had never been touched before, but that he felt was now vibrating and throbbing to curious pulses.
+
+Music had stirred him like that. Music had troubled him many times. But music was not articulate. It was not a new world, but rather another chaos, that it created in us. Words! Mere words! How terrible they were! How clear, and vivid, and cruel! One could not escape from them. And yet what a subtle magic there was in them! They seemed to be able to give a plastic form to formless things, and to have a music of their own as sweet as that of viol or of lute. Mere words! Was there anything so real as words?
+
+Yes; there had been things in his boyhood that he had not understood. He understood them now. Life suddenly became fiery-coloured to him. It seemed to him that he had been walking in fire. Why had he not known it?
+
+大约有十分钟，他一动不动地站在那里，嘴巴张开着，眼睛异样地明亮。他模糊地意识到，内心正接受着一种全新的影响，而这种影响似乎来自于他自己。巴兹尔的朋友同他说的几句话——随口说说的，毫无疑问。话中不乏刻意的悖论——拨动了某根秘密的心弦，这根心弦以前从未触及过，此刻却在奇怪地搏动着。
+
+音乐曾经如此打动过他，无数次折磨过他，但音乐表达得并不清晰，它在我们心里创造的不是一个新世界，而是另一种混乱。话语呀！只不过话语！它多么可怕！多么清楚，多么生动，多么残酷！你无法逃避话语，它蕴含着多么微妙的魔力，似乎能使无形的东西变成有形，似乎自身具有一种音乐，像提琴和诗琴一样动听。而只不过是话语！还有比话语更真实的吗？
+
+不错，年少时他有很多东西不懂，此刻他懂了，忽地觉得生活的色彩像火一样红，仿佛自己向来就在火中行走。但为什么以前一直没有觉察呢？
+
+Lord Henry went out to the garden, and found Dorian Gray burying his face in the great cool lilac-blossoms, feverishly drinking in their perfume as if it had been wine. He came close to him, and put his hand upon his shoulder. ‘You are quite right to do that,’ he murmured. ‘Nothing can cure the soul but the senses, just as nothing can cure the senses but the soul.’
+
+The lad started and drew back. He was bare-headed, and the leaves had tossed his rebellious curls and tangled all their gilded threads. There was a look of fear in his eyes, such as people have when they are suddenly awakened. His finely-chiselled nostrils quivered, and some hidden nerve shook the scarlet of his lips and left them trembling.
+
+‘Yes,’ continued Lord Henry, ‘that is one of the great secrets of life – to cure the soul by means of the senses, and the senses by means of the soul. You are a wonderful creation. You know more than you think you know, just as you know less than you want to know.’
+
+Dorian Gray frowned and turned his head away. He could not help liking the tall, graceful young man who was standing by him. His romantic olive-coloured face and worn expression interested him. There was something in his low, languid voice that was absolutely fascinating. His cool, white, flower-like hands, even, had a curious charm. They moved, as he spoke, like music, and seemed to have a language of their own. But he felt afraid of him, and ashamed of being afraid. Why had it been left for a stranger to reveal him to himself? He had known Basil Hallward for months, but the friendship between them had never altered him. Suddenly there had come some one across his life who seemed to have disclosed to him life’s mystery. And, yet, what was there to be afraid of? He was not a schoolboy or a girl. It was absurd to be frightened.
+
+亨利勋爵走出画室，到了花园里。发现道连·格雷把脸埋在硕大凉爽的紫丁香花丛中，喝酒似的拚命吸吮着香气。他走近道连，把手搭在他肩上。“你做得很对，”他低声说，“只有感官才能拯救灵魂，就像只有灵魂才能拯救感官一样。”
+
+小伙子吃了一惊，往后退去。他头上什么也没有戴，树叶撩起了他不听话的鬈发，缠住了金色的发丝。他像一个突然被叫醒的人那样，露出了恐惧的眼神，轮廓分明的鼻孔颤动着，某根隐蔽的神经震撼了他鲜红的嘴唇，弃得它抖个不停。
+
+“是呀，”亨利勋爵继续说，“那是生活的一大秘密——用感官来，拯救灵魂，用灵魂来拯救感官。你是一个了不起的创造。你知道的比你自己设想的要多，就像你知道的比你想要知道的要少一样。”道连·格雷皱了皱眉，转过头去。他禁不住喜欢起身旁这个高高的、风度翩翩的年轻人来。那橄榄色浪漫的脸和疲惫的表情使他兴味盎然。在慢悠悠低沉的嗓音里，有一种极为动人的东西。甚至那白皙、冰凉、花一样的双手，也有一种奇妙的魅力。说话时，他的手像音乐一样流动着，似乎有着自己的语言。但他害怕他，并为害怕而感到惭愧。为什么得让一个陌生人来披露自己的心灵呢？他与巴兹尔相识已有几个月了，但他们之间的并没有改变他。突然问，生活中闯进了一个人，似乎给他揭示了生活的秘密。而这又有什么可怕呢？自己又不是个小学生，要是害怕，那可太荒唐了。
+
+‘It should matter everything to you, Mr Gray.’
+
+‘Why?’
+
+‘Because you have the most marvellous youth, and youth is the one thing worth having.’
+
+‘I don’t feel that, Lord Henry.’
+
+‘No, you don’t feel it now. Some day, when you are old and wrinkled and ugly, when thought has seared your forehead with its lines, and passion branded your lips with its hideous fires, you will feel it, you will feel it terribly. Now, wherever you go, you charm the world. Will it always be so?… You have a wonderfully beautiful face, Mr Gray. Don’t frown. You have. And Beauty is a form of Genius – is higher, indeed, than Genius, as it needs no explanation. It is of the great facts of the world, like sunlight, or spring-time, or the reflection in dark waters of that silver shell we call the moon. It cannot be questioned. It has its divine right of sovereignty. It makes princes of those who have it. You smile? Ah! when you have lost it you won’t smile.… People say sometimes that Beauty is only superficial. That may be so. But at least it is not so superficial as Thought is. To me, Beauty is the wonder of wonders. It is only shallow people who do not judge by appearances. The true mystery of the world is the visible, not the invisible…. Yes, Mr Gray, the gods have been good to you. But what the gods give they quickly take away. You have only a few years in which to live really, perfectly, and fully. When your youth goes, your beauty will go with it, and then you will suddenly discover that there are no triumphs left for you, or have to content yourself with those mean triumphs that the memory of your past will make more bitter than defeats. Every month as it wanes brings you nearer to something dreadful. Time is jealous of you, and wars against your lilies and your roses. You will become sallow, and hollow-cheeked, and dull-eyed. You will suffer horribly…. Ah! realize your youth while you have it. Don’t squander the gold of your days, listening to the tedious, trying to improve the hopeless failure, or giving away your life to the ignorant, the common, and the vulgar. These are the sickly aims, the false ideals, of our age. Live! Live the wonderful life that is in you! Let nothing be lost upon you. Be always searching for new sensations. Be afraid of nothing…. A new Hedonism – that is what our century wants. You might be its visible symbol. With your personality there is nothing you could not do. The world belongs to you for a season…. The moment I met you I saw that you were quite unconscious of what you really are, of what you really might be. There was so much in you that charmed me that I felt I must tell you something about yourself. I thought how tragic it would be if you were wasted. For there is such a little time that your youth will last – such a little time. The common hill-flowers wither, but they blossom again. The laburnum will be as yellow next June as it is now. In a month there will be purple stars on the clematis, and year after year the green night of its leaves will hold its purple stars. But we never get back our youth. The pulse of joy that beats in us at twenty, becomes sluggish. Our limbs fail, our senses rot. We degenerate into hideous puppets, haunted by the memory of the passions of which we were too much afraid, and the exquisite temptations that we had not the courage to yield to. Youth! Youth! There is absolutely nothing in the world but youth!’
+
+“这应当与你息息相关，格雷先生。”
+
+“为什么？”
+
+“因为你享受着最了不起的青春，而青春是值得拥有的。”
+
+“我并没有那种感觉，亨利勋爵。”
+
+“不，你只是现在没有罢了。某一天，等你垂垂老矣，满脸皱纹，丑陋不堪的时候，等思考使你歇顶，把线条刻上你前额的时候，等激情把它可怕的火焰烙上你嘴唇的时候，你会感觉到的，你会强烈地感觉到。现在呢，无论你走到哪里，你会让世界倾倒，难道你能永远这样吗？……你有一张极其漂亮的面孔，格雷先生。别皱眉头，你确实如此。美是天才的一种形式——说真的，高于天才，因为它不需要任何解释。美是世间的一大存在，就像阳光、、或者是映在黑黑的水中，我们称之为的银色贝壳。它不容置疑，它拥有自己神圣的主权，它使占有美的人成为王子。你笑什么？唉，你失去以后就不会、笑了……有时，人会说美是肤浅的，也许如此。但至少不像思想那么肤浅。对我来说，美是奇迹中的奇迹。只有浅薄的人才不以貌取人。世界真正的神秘性在于可见之物，而不在于看不见的东西一乙一是啊，格雷先生，诸神厚爱你，可是诸神赐予你的，会很快被取走。你只有几年时间，能够实实在在，完完美美，充充实实地生活。青春一逝，美也随之而去。到那时，你会突然发现，没有留下胜利的凯歌，或者不得不满足于一些渺小的胜利，而往昔的记忆会使这些胜利比失败还要痛苦。月复一月，美渐渐衰朽，某种可怕的东西接踵而至。时间妒忌你，战争跟你的美貌作对。你脸色灰黄，两颊下陷，目光迟钝。你会感到无限痛苦……啊！你拥有青春的时候，就要感受它。不要虚掷你的黄金时代，不要去倾听枯燥乏味的东西，不要设法挽救无望的失败，不要把你的生命献给无知、平庸和低俗。这些都是我们时代病态的目标，虚假的理想。活着！把你宝贵的内在生命活出来。什么都别错过。不断寻找新的感受，什么都不要怕……一种新的享乐主义——那正是我们的世纪所缺乏的。你也许是它看得见的象征。有你这样的个性，你什么都干得成。世界只属于你一个季节……我遇见你的那一刻，我看得出，你并没有十分意识到自己是怎样一个人，实际上可以成为怎样一个人。你身上有那么多东西让我着迷，所以我觉得必须把某些关系到你的事告诉你。我想，要是你虚度了青春，那该有多不幸。因为你的青春岁月所剩无多——只有那么一点点时间了。普通的山花谢了又开，明年六月，金莲花会像现在这样开得金黄。再过一个月，铁线莲会长出似的紫色花朵，一年又一年，绿色的叶子支撑着紫色的。但我们的青春却一去不返。二十岁时，脉搏跳得很欢，现在却微弱无力了。我们的四肢废了，感官坏了。．我们衰变成了可怕的傀儡，只剩下记忆中令我们害怕的激情，以及我们没有胆量接受的巨大诱惑，依然拂之不去。青春啊，青春！除了青春，世上什么也没有！”
+
+# Chapter 03
