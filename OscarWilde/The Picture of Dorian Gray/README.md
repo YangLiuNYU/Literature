@@ -142,3 +142,18 @@ It was clear to him that the experimental method was the only method by which on
 
 # Chapter 05
 
+The girl laughed again. The joy of a caged bird was in her voice. Her eyes caught the melody, and echoed it in radiance: then closed for a moment, as though to hide their secret. When they opened, the mist of a dream had passed across them.
+
+Thin-lipped wisdom spoke at her from the worn chair, hinted at prudence, quoted from that book of cowardice whose author apes the name of common sense. She did not listen. She was free in her prison of passion. Her prince, Prince Charming, was with her. She had called on Memory to remake him. She had sent her soul to search for him, and it had brought him back. His kiss burned again upon her mouth. Her eyelids were warm with his breath.
+
+Then Wisdom altered its method and spoke of espial and discovery. This young man might be rich. If so, marriage should be thought of. Against the shell of her ear broke the waves of worldly cunning. The arrows of craft shot by her. She saw the thin lips moving, and smiled.
+
+这姑娘又大笑起来。嗓音里透出了笼中鸟般的喜悦。她的眼睛抓住了这美妙的旋律，产生了共鸣，闪烁出明亮的目光。随后闭了一会儿，仿佛要掩盖内心的秘密。再次张开的时候，眸子里飘过一阵梦幻似的雾翳。
+
+薄唇利舌的智慧坐在旧椅子上同她说话，暗示她要谨慎，还引述了一本借用常识之名写成的《懦弱》一书。她置之不理。在激情的牢狱中她是自由的。她的王子，迷人王子，同她在一起。她召唤记忆来重塑王子的形象，派出灵魂去寻找他，并把他带了回来。他的亲吻再次在她嘴上燃烧，她的眼睑留着他呼吸的余温。
+
+然后，智慧改变了手法，主张探秘和发现。这年轻人也许很有钱，要是这样，婚姻就应当考虑。世俗的狡狯，波浪似地撞击着她的耳壳，诡计的箭矢，从她身边滑过。她看到智慧的薄唇在抖动和微笑。
+
+# Chapter 06
+
+
