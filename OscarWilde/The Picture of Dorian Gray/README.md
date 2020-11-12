@@ -326,4 +326,62 @@ Such, at any rate, was Dorian Gray’s opinion. He used to wonder at the shallow
 
 但是，在很多人眼里，这些嘁嘁喳喳的流言只会增加他奇怪而危险的魅力。他的巨额财富为他提供了相当的保障。社会，至少文明社会，不会轻易相信诋毁既有钱而又具吸引力的人的传言。世人有_种直觉：风度比道德更为重要，还认为至高无上的体面还不如拥有一个好厨师值钱。倘使有人以蹩脚的饭菜或劣酒宴客，纵然人家告诉你此人的私生活无可指责，那也是一个很可怜的安慰。就像有一次他与亨利勋爵谈起这个问题时勋爵所说的那样，连基本的德性都抵不上一道不冷不热的主菜。也许关于他的观点，还有很多话可说。上流社会的准则和艺术的准则是一致的，或者应当是一致的。对上流社会来说，形式极为重要，既要有礼仪的庄重又要有其虚假性，要把传奇剧的虚假成分同剧中悦人的机智和美结合起来。难道虚假很可怕吗？我认为并不可怕，不过是丰富我们个性的一种手段而已。这些至少是道连的观点。他过去总是对某些人的肤浅的心理学感到纳闷。他们认为人的自我是简单的、永久的、可靠的，属于单一的本质。对他来说，人具有多重生活和多重感觉，是一个多重体的复杂，内中有传承下来的思想和激情的奇怪遗产。人的肉体本身就染上了逝者可怕的疾病。他喜欢漫步在自己乡问别墅荒凉的画廊里，欣赏那些他们的血在自己血管中流动的人的画像。
 
-# Chapter 13
+# Chapter 16
+
+A cold rain began to fall, and the blurred street-lamps looked ghastly in the dripping mist. The public-houses were just closing, and dim men and women were clustering in broken groups round their doors. From some of the bars came the sound of horrible laughter. In others, drunkards brawled and screamed.
+
+Lying back in the hansom, with his hat pulled over his forehead, Dorian Gray watched with listless eyes the sordid shame of the great city, and now and then he repeated to himself the words that Lord Henry had said to him on the first day they had met, ‘To cure the soul by means of the senses, and the senses by means of the soul.’ Yes, that was the secret. He had often tried it, and would try it again now. There were opium-dens, where one could buy oblivion, dens of horror where the memory of old sins could be destroyed by the madness of sins that were new.
+
+The moon hung low in the sky like a yellow skull. From time to time a huge misshapen cloud stretched a long arm across and hid it. The gas-lamps grew fewer, and the streets more narrow and gloomy. Once the man lost his way, and had to drive back half a mile.1 A steam rose from the horse as it splashed up the puddles. The side-windows of the hansom were clogged with a grey-flannel mist.
+
+天空开始下起了冷雨。在滴答的浓雾中，街灯看上去犹如憧憧鬼影。酒店正在打烊，一群男女聚在门外，零零落落，人影模糊。有些酒吧里传出了刺耳的笑声；另一些酒吧里，酒鬼们吵吵嚷嚷，大声尖叫。
+
+道连．格雷仰靠在马车上，帽子低低地压着前额，双目无神地注视着这个大城市的耻辱，不时自言自语重复着亨利勋爵第一天同他见面时说的话，”用感官治疗灵魂，用灵魂治疗感官。不错，这就是秘密。他试过多次，现在又要试了。鸦片窝可以让你买得遗忘，恐怖窝可以用疯狂的新罪，摧毁旧恶的记忆。
+
+像一个黄黄的头骨，低低地悬挂在天空。一块奇形怪状的云，不时伸出长长的胳膊，把遮住。越是往前，汽灯就越少，街道也越来越窄，越来越暗。有一回车夫还迷了路，不得不折回半英里。马踩着水潭，溅起泥浆，身上直冒热气。马车两边的窗子上，蒙上了法兰绒般的雾气。
+
+The way seemed interminable, and the streets like the black web of some sprawling spider. The monotony became unbearable, and, as the mist thickened, he felt afraid.
+
+路似乎没有尽头。街道像是一只爬动的蜘蛛编织的黑色蛛网。那种单调令人难以忍受。雾越来越浓，他有些害了。
+
+It is said that passion makes one think in a circle. Certainly with hideous iteration the bitten lips of Dorian Gray shaped and reshaped those subtle words that dealt with soul and sense, till he had found in them the full expression, as it were, of his mood, and justified, by intellectual approval, passions that without such justification would still have dominated his temper. From cell to cell of his brain crept the one thought; and the wild desire to live, most terrible of all man’s appetites, quickened into force each trembling nerve and fibre. Ugliness that had once been hateful to him because it made things real, became dear to him now for that very reason. Ugliness was the one reality. The coarse brawl, the loathsome den, the crude violence of disordered life, the very vileness of thief and outcast, were more vivid, in their intense actuality of impression, than all the gracious shapes of Art, the dreamy shadows of Song. They were what he needed for forgetfulness. In three days he would be free.
+
+据说激烈的情绪会使人的思路兜圈子。确实，道连·格雷咬着的嘴唇讨厌地重复着有关灵魂和感官的微妙字眼，直到自己的情绪在这些字眼中得到了充分的表达。而且在理智的应允下，他为这种激烈的情绪找到了正当理由。不然，他的脾气会仍然受情绪所支配。在他的脑细胞里潜伏着一个想法；生的强烈欲望——人类的欲望中最可怕的一个，使他每一根颤抖的神经纤维都活跃起来。丑恶曾一度令他讨厌，因为丑恶给人一种真实感。而现在却因其真实，反觉得可爱了。丑恶是惟一的真实。粗暴的争吵、可恶的鸦片窝、混乱的生活中赤裸裸的暴力、小偷和流浪汉的肮脏生活，就其给人的强烈真实的印象而言，要比一切优美的艺术形象和梦幻般的歌生动得多。这些正是他为了忘却所需要的。三天以后他就会无忧无虑了。
+
+Dorian Gray hurried along the quay through the drizzling rain. His meeting with Adrian Singleton had strangely moved him, and he wondered if the ruin of that young life was really to be laid at his door, as Basil Hallward had said to him with such infamy of insult. He bit his lip, and for a few seconds his eyes grew sad. Yet, after all, what did it matter to him? One’s days were too brief to take the burden of another’s errors on one’s shoulders. Each man lived his own life, and paid his own price for living it. The only pity was one had to pay so often for a single fault. One had to pay over and over again, indeed. In her dealings with man Destiny never closed her accounts.
+
+There are moments, psychologists tell us, when the passion for sin, or for what the world calls sin, so dominates a nature, that every fibre of the body, as every cell of the brain, seems to be instinct with fearful impulses. Men and women at such moments lose the freedom of their will. They move to their terrible end as automatons move. Choice is taken from them, and conscience is either killed, or, if it lives at all, lives but to give rebellion its fascination, and disobedience its charm. For all sins, as theologians weary not of reminding us, are sins of disobedience. When that high spirit, that morning-star of evil, fell from heaven, it was as a rebel that he fell.
+
+在蒙蒙细雨中，道连·格雷急急地沿着码头走去。与艾德里安·辛格尔顿的相遇奇怪地打动了他，心里觉得纳闷，那个年轻人的毁灭，是不是像巴兹尔·霍尔华德当面出丑说他的那样，真的与他有关。他咬着嘴唇，一瞬间双眼透出了哀伤。然而，说到底这与他何干？人的生命那么短暂，又何必把他人的过错揽到自己身上。各人都过着自己的生活，也为此付出自己的代价。说实在，还得一而再，再而三地偿付。命运在与人交易时永远不会结账。
+
+心理学家告诉我们，有时候，当犯罪或是世人称之为犯罪的那种情绪，支配着天性时，人体的每一根纤维就像头脑的每一个细胞那样，似乎都本能地产生了一种可怕的冲动。在这样的时刻，无论男女，都丧失了意志的自由，不由自主地奔向可怕的结局。
+
+选择已被剥夺，良心或是泯灭，或是依旧存在，但存在着给予叛逆以诱惑，赋予反抗以魅力。就像神学家孜孜不倦地提醒我们的那样，一切罪孽都来自于反抗。那个高尚的神灵，也就是那颗罪恶的晨星，是以叛逆者的身份从天上降落到人间的。
+
+
+# Chapter 17
+
+Romance lives by repetition, and repetition converts an appetite into an art. Besides, each time that one loves is the only time one has ever loved. Difference of object does not alter singleness of passion. It merely intensifies it. We can have in life but one great experience at best, and the secret of life is to reproduce that experience as often as possible.
+
+浪漫的爱情通过重复而生存下去，而重复又把欲望变成了艺术。此外，每次爱的滋味都是独特的。对象的不同非但不会改变情欲的专一性，反而会强化它。我们一生中充其量只有一次伟大的经历，生活的秘密在于尽可能多地复制伟大的经历。
+
+# Chapter 18
+
+The next day he did not leave the house, and, indeed, spent most of the time in his own room, sick with a wild terror of dying, and yet indifferent to life itself. The consciousness of being hunted, snared, tracked down, had begun to dominate him. If the tapestry did but tremble in the wind, he shook. The dead leaves that were blown against the leaded panes seemed to him like his own wasted resolutions and wild regrets. When he closed his eyes, he saw again the sailor’s face peering through the mist-stained glass, and horror seemed once more to lay its hand upon his heart.
+
+But perhaps it had been only his fancy that had called vengeance out of the night, and set the hideous shapes of punishment before him. Actual life was chaos, but there was something terribly logical in the imagination. It was the imagination that set remorse to dog the feet of sin. It was the imagination that made each crime bear its misshapen brood. In the common world of fact the wicked were not punished, nor the good rewarded. Success was given to the strong, failure thrust upon the weak.
+
+第二天他足不出户，说实在，大多呆在自己房间里，病快快地感到极度恐慌，担心自己快要死了，但又对生命本身十分冷漠。一种被追杀、诱捕和跟踪的感觉开始支配着他。壁毯在风中不过动了一下，他便颤抖起来。吹打在铅条玻璃上的枯叶，在他看来酷像自己徒劳的决心和狂乱的悔恨。他一闭上眼睛，便又看到了那海员的脸，隔着雾气迷蒙的窗玻璃窥视着。恐惧似乎再次攫住了他的心。
+
+但也许不过是他幻觉的缘故，黑夜里才闪现了复仇景象，他眼前才展示出惩罚的可怖场面。真实生活是无序的，但想象却有某种严密的逻辑。正是想象使悔恨尾随着罪恶，也正是想象使每一罪恶生出奇形怪状的后代。在平凡的现实世界，恶人得不到惩罚，好人得不到好报。成功被赐给了强者，失败被扔给了弱者。
+
+It was not till the third day that he ventured to go out. There was something in the clear, pine-scented air of that winter morning that seemed to bring him back his joyousness and his ardour for life. But it was not merely the physical conditions of environment that had caused the change. His own nature had revolted against the excess of anguish that had sought to maim and mar the perfection of its calm. With subtle and finely-wrought temperaments it is always so. Their strong passions must either bruise or bend. They either slay the man, or themselves die. Shallow sorrows and shallow loves live on. The loves and sorrows that are great are destroyed by their own plenitude. Besides, he had convinced himself that he had been the victim of a terror-stricken imagination, and looked back now on his fears with something of pity and not a little of contempt.
+
+一直到第三天他才敢出门。的早晨，明净而带松树清香的空气中洋溢着某种东西，恢复了他的欢乐和对生活的热情。但也并不只是环境的物质条件造成了这种变化。他的天性跟过度的痛苦势不两立，因为这种痛苦破坏了他内心的安宁。性格细腻和高雅的人都是如此。强烈的情绪要么碰得鼻青眼肿，要么立即收敛；要么置人于死地，要么自己灭亡。小悲小爱继续生存，大悲大爱则毁灭于自己的充盈。另外，他相信自己是一场噩梦的牺牲品。现在，他回顾自己的忧虑时，是带着惋惜和蔑视的心情的。
+
+‘The basis of every scandal is an immoral certainty,’ said Lord Henry, lighting a cigarette.
+‘You would sacrifice anybody, Harry, for the sake of an epigram.’
+“凡是丑闻，其根据必定是不道德。”亨利勋爵说着点了一支烟。“你不惜牺牲任何人，哈利，就为了成全自己的一个警句。”
+“世人是自愿走向祭坛的。”便是他的回答。
+
+
