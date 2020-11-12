@@ -385,3 +385,18 @@ It was not till the third day that he ventured to go out. There was something in
 “世人是自愿走向祭坛的。”便是他的回答。
 
 # Chapter 19
+
+‘My dear boy,’ said Lord Henry, smiling, ‘anybody can be good in the country. There are no temptations there. That is the reason why people who live out of town are so absolutely uncivilized. Civilization is not by any means an easy thing to attain to. There are only two ways by which man can reach it. One is by being cultured, the other by being corrupt. Country people have no opportunity of being either, so they stagnate.’
+
+“好家伙，”亨利勋爵笑了笑说，“在乡下谁都能学好。那里没有诱惑，这也就是乡下人极不开化的原因了。文明绝不是唾手可得的。人要达到文明有两条途径：一条是使自己有教养；另一条是使自己堕落。乡下人两个机会都没有，所以停滞不前。”
+
+Life is not governed by will or intention. Life is a question of nerves, and fibres, and slowly built-up cells in which thought hides itself and passion has its dreams. You may fancy yourself safe, and think yourself strong. But a chance tone of colour in a room or a morning sky, a particular perfume that you had once loved and that brings subtle memories with it, a line from a forgotten poem that you had come across again, a cadence from a piece of music that you had ceased to play – I tell you, Dorian, that it is on things like these that our lives depend. Browning writes about that somewhere; but our own senses will imagine them for us. There are moments when the odour of lilas blanc passes suddenly across me, and I have to live the strangest month of my life over again. 
+
+生活不是受意志或愿望支配的。生活是神经，是纤维，是逐步确立的细胞，在这些东西中，思想把自己掩盖起来，而激情做着自己的梦。你设想自己很安全，认为自己很强大。但是，房间里或是晨空中一抹随意的颜色，你曾经用过并给你带来微妙记忆的某种特定的香水，一首被遗忘的诗歌中你重又见到的一行诗句，你不再弹奏的乐曲中的一个节拍——告诉你吧，道连，我们的生活正是依赖于这些东西的。诗人勃朗宁在什么地方写到过它，不过我们自己的感官会替我们想象的。曾有这样的时刻，一阵丁香的芬芳突然飘来，于是我便又回味一生中最奇特的一个月的日子。
+
+# Chapter 20
+
+The curiously-carved mirror that Lord Henry had given to him, so many years ago now, was standing on the table, and the white-limbed Cupids laughed round as of old. He took it up, as he had done on that night of horror, when he had first noted the change in the fatal picture, and with wild tear-dimmed eyes looked into its polished shield. Once, some one who had terribly loved him, had written to him a mad letter, ending with these idolatrous words: ‘The world is changed because you are made of ivory and gold. The curves of your lips rewrite history.’ The phrases came back to his memory, and he repeated them over and over to himself. Then he loathed his own beauty, and flinging the mirror on the floor crushed it into silver splinters beneath his heel. It was his beauty that had ruined him, his beauty and the youth that he had prayed for. But for those two things, his life might have been free from stain. His beauty had been to him but a mask, his youth but a mockery. What was youth at best? A green, an unripe time, a time of shallow moods, and sickly thoughts. Why had he worn its livery? Youth had spoiled him.
+
+几年前亨利勋爵送他的那面雕刻得很奇特的镜子，此刻放在桌上，四肢雪的小爱神依旧在镜框上笑着。就像在那个可怕的夜晚，他注意到画像致命的变化一样，他拿起了镜子，泪眼模糊地朝光洁的镜子看进去。有一次，一个爱得他要命的人写了一封痴情的信给他，信末是这样两句崇拜得五体投地的话：“世界因为你是象牙和金子做的才变了样，你嘴上的曲线重写了历史。”他想起了这两句话，并不断地回味着。随后他厌恶起自己的美貌来，一下子把镜子扔到了地板上，用鞋跟把它踩成银色的碎片。正是美貌毁了他，而美貌和青春是他所祈求的。要是没有这两者，他的生命也许仍会洁白无瑕。对他来说，美貌不过是假面，青春是一种讽刺。充其量青春是什么呢？是一段幼稚不成熟的时期，一段情绪浅薄、思想病态的时期。为什么他老是穿着青春的号衣呢？青春已经损害了他。
+
