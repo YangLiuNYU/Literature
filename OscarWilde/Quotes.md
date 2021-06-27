@@ -7,6 +7,12 @@ When one is in love, one always begins by deceiveing one's self, and one always 
 
 The very essence of romance is uncertainty. 浪漫的精髓就在于它充满种种可能。 
 
+The happiness of a married man depends on the people he has not married. 已婚者的快乐来自那些他没有娶的人。 
+
+Marriage is the triumph of imagination over intelligence. Second marriage is the triumph of hope over experience. 结婚是想象战胜了理智，再婚是希望战胜了经验。 
+
+Women are meant to be loved, not to be understood. -The Sphinx Without a Secret 女人是用来被爱的，不是用来被理解的。 -《没有秘密的斯芬克斯》 
+
 Man is a rational animal who always loses his temper when he is called upon to act in accordance with the dictates of reason. 人是理性动物，但当他被要求按照理性的要求行动时，可又要发脾气了。 
 
 My wallpaper and I are fighting a duel to the death. One or other of us has to go. 墙纸越来越破，而我越来越老，两者之间总有一个要先消失。——1900年11月30日，于左岸旅店，他的遗言。 
@@ -18,6 +24,8 @@ The truth is rarely pure and never simple. -The Importance of Being Earnest (189
 To love oneself is the beginning of a lifelong romance. 爱自己是终身浪漫的开始。 ——爱自己就是开始延续一生的罗曼史。 
 
 We are all in the gutter, but some of us are looking at the stars. 我们都生活在阴沟里，但仍有人仰望星空。 
+
+A man's face is his autobiography. A woman's face is her work of fiction. 男人的面孔是他的自传，女人的面容是她的幻想作品。 
 
 Most people discover when it is too late that the only things one never regrets are one's mistakes. 大多数人发现他们从未后悔的事情只是他们的错误，但发现时已经太晚了。 
 
@@ -31,21 +39,15 @@ I represent to you all the sins you have never had the courage to commit. 我给
 
 One can always be kind to people one cares nothing about. 一个人总是可以善待他毫不在意的人。 
 
-We Irish are too poetical to be poets; we are a nation of brilliant failures, but we are the greatest talkers since the Greeks. 我们爱尔兰人太诗意以至不能做诗人，我们的国家里充满才华横溢的失败者，可我们是自希腊人以来最伟大的说空话之人。 
-
 What seems to us as bitter trials are often blessings in disguise 看似痛苦的试炼的往往是伪装的祝福。 
 
 The advantage of the emotions is that they lead us astray. 情感的好处就是让我们误入歧途。 
-
-Over the piano was printed a notice: Please do not shoot the pianist. He is doing his best.Personal Impressions of America (Leadville) (1883) 钢琴上贴着一条告示：请不要枪杀钢琴师，他已经尽力了。 
 
 The heart was made to be broken. 心是用来碎的。 
 
 The public is wonderfully tolerant. It forgives everything except genius. 公众惊人地宽容。他们可以原谅一切，除了天才。 
 
 Religions die when they are proved to be true. Science is the record of dead religions. 宗教一旦被证明是正确时就会消亡。科学便是已消亡宗教的记录。 
-
-Why was I born with such contemporaries 为什么我会和这样同时代的人一块出生呢？ 
 
 A poet can survive everything but a misprint. 诗人可以从任何事件中存活，印刷错误除外。 
 
@@ -55,8 +57,6 @@ The only way to get rid of temptation is to yield to it... I can resist everythi
 
 Discontent is the first step in the progress of a man or a nation 不满是个人或民族迈向进步的第一步。 
 
-I like to do all the talking myself. It saves time, and prevents arguments. 我喜欢自言自语，因为这样节约时间，而且不会有人跟我争论。 
-
 Quotation is a serviceable substitute for wit. 格言是智慧耐用的替代品。 
 
 A dreamer is one who can only find his way by moonlight, and his punishment is that he sees the dawn before the rest of the world. 梦想家只能在月光下找到前进的方向，他为此遭受的惩罚是比所有人提前看到曙光。 
@@ -64,8 +64,6 @@ A dreamer is one who can only find his way by moonlight, and his punishment is t
 Every saint has a past and every sinner has a future. 每个圣人都有过去，每个罪人都有未来。 
 
 To live is the rarest thing in the world. Most people exist, that is all. 生活是世上最罕见的事情，大多数人只是存在，仅此而已。 
-
-I have nothing to declare except my genius. 除了我的天才，我没什么好申报的。 
 
 I like men who have a future and women who have a past 我喜欢有未来的男人和有过去的女人。 
 
@@ -75,7 +73,9 @@ Society exists only as a mental concept; in the real world there are only indivi
 
 What is a cynic? A man who knows the price of everything and the value of nothing 一个愤世嫉俗的人知道所有东西的价格，却不知道任何东西的价值。 
 
-I like persons better than principles, and I like persons with no principles better than anything else in the world. 我喜欢人甚于原则，此外我还喜欢没原则的人甚于世界上的一切。 It is the confession, not the priest, that gives us absolution 给我们赦免的，是忏悔而不是牧师。 
+I like persons better than principles, and I like persons with no principles better than anything else in the world. 我喜欢人甚于原则，此外我还喜欢没原则的人甚于世界上的一切。 
+
+It is the confession, not the priest, that gives us absolution 给我们赦免的，是忏悔而不是牧师。 
 
 I don't want to earn my living; I want to live. 我不想谋生；我想生活。 
 
@@ -129,8 +129,6 @@ The world has been made by fools that wise men should live in it. 愚人创造�
 
 Men marry because they are tired; women because they are curious; both are disappointed. 男人因疲倦而结婚，女人因好奇而结婚；最终他们都会失望。 
 
-The happiness of a married man depends on the people he has not married. 已婚者的快乐来自那些他没有娶的人。 
-
 Twenty years of romance make a woman look like a ruin; but twenty years of marriage make her look like a public building. 20年的韵事使女人变成一片废墟，20年的婚姻使女人变成一座公共建筑。 
 
 When a woman marries again,it is because she detested her first husband.When a man marries again,it is because he adored his first wife. Women try their luck; men risk theirs. 女人再嫁是因为憎恶前夫，男人再娶是因为太爱前妻。 ——女人再嫁是因为讨厌原来的丈夫，男人再娶是因为太爱原来的妻子。在寻找配偶时，女人习惯碰运气，而男人则会冒险。 
@@ -150,8 +148,6 @@ Nothing can cure the soul but the senses, just as nothing can cure the senses bu
 A good name, like good will, is got by many action and lost by one. 一个好的名声，就像好的意向一样，在很多个举动的形成，在一个举动中失去。 
 
 It is absurd to divide people in to good and bad. People are either charming or tedious. -Lady Windermere's Fan, 1892, Act I 把人分成好的与坏的是荒谬的，人要么迷人，要么乏味。 -《温夫人的扇子》 
-
-Women are meant to be loved, not to be understood. -The Sphinx Without a Secret 女人是用来被爱的，不是用来被理解的。 -《没有秘密的斯芬克斯》 
 
 Life imitates art far more than art imitates Life. 艺术并非模仿生活，而是生活在模仿艺术。 
 
@@ -178,8 +174,6 @@ Wicked women bother one. Good women bore one. That is the only difference betwee
 Experience is the name every one gives to their mistakes. 每个人犯了错误，都自称是经验。 ——经验是一个人给自己所犯的错误取的名字。 
 
 And, after all, what is a fashion? From the artistic point of view, it is usually a form of ugliness so intolerable that we have to alter it every six months. Literary and Other Notes I, Woman's World (November 1887) 时尚是一种让人难以忍受的丑陋，以至于我们不得不每六个月就更改一次。 ——时装丑陋得完全令人无法容忍，以至于我们必须每6个月就改变它的样式。 
-
-A man's face is his autobiography. A woman's face is her work of fiction. 男人的面孔是他的自传，女人的面容是她的幻想作品。 
 
 There is only one real tragedy in a woman's life. The fact that her past is always her lover, and her future invariably her husband. 女人的生活中只有一个真正的悲剧：她总在缅怀过去，却必须活在未来。 
 
@@ -225,15 +219,9 @@ I am so clever that sometimes I don’t understand a single word of what I’m s
 
 I have made an important discovery…that alcohol, taken in sufficient quantities, produces all the effects of intoxication. 我有一个重大发现——如果摄入足量酒精，就会产生各种陶醉的效果。 
 
-I like talking to a brick wall, it's the only thing in the world that never contradicts me. 我喜欢对一堵墙说话，世界上只有它不会反驳我。 
-
 I love acting. It is so much more real than life. 我喜欢看戏。与人生相比，戏剧更加真实。 
 
-I often take exercise. Why only yesterday I had breakfast in bed. 我经常锻炼。只是昨天我是在床上吃的早饭。 
-
 I think that God, in creating Man, somewhat overestimated his ability. 我想，上帝在创造人类时高估了他的能力。 
-
-I was working on the proof of one of my poems all morning, and took out a comma. In the afternoon I put it back again. 我整个早上都在校对自己的一首诗，我去掉了一个逗号。下午我又把它加上去了。 
 
 Ignorance is like a delicate flower: touch it and the bloom is gone. 无知就像是一朵精致的花朵：摸一下，它就消失了。 
 
@@ -250,8 +238,6 @@ It is very easy to endure the difficulties of one's enemies. It is the successes
 Life is one fool thing after another whereas love is two fool things after each other. 人生就是一件蠢事追着另一件蠢事而来，而爱情则是两个蠢东西追来追去。 
 
 Like dear St Francis of Assisi I am wedded to Poverty: but in my case the marriage is not a success. 就像亲爱的圣芳济一样，我也和贫穷联姻，但我的婚姻并不成功。 
-
-Marriage is the triumph of imagination over intelligence. Second marriage is the triumph of hope over experience. 结婚是想象战胜了理智，再婚是希望战胜了经验。 
 
 Music makes one feel so romantic—at least it always gets on one's nerves, which is the same thing nowadays. 音乐让人感觉非常浪漫，至少让人感觉不安，如今两者是一回事。 
 
