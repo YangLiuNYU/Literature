@@ -1,5 +1,7 @@
-作者：zeroyeung
-链接：https://www.zhihu.com/question/19646592/answer/23842875
+* https://www.goodreads.com/author/quotes/3565.Oscar_Wilde
+* https://www.zhihu.com/question/19646592/answer/23842875
+
+To love oneself is the beginning of a lifelong romance. 爱自己是终身浪漫的开始。 ——爱自己就是开始延续一生的罗曼史。 
 
 The only difference between a caprice and a life-long passion is that the caprice lasts a little longer. 逢场作戏和终身不渝之间的区别只在于逢场作戏稍微长一些。 
 
@@ -20,8 +22,6 @@ My wallpaper and I are fighting a duel to the death. One or other of us has to g
 No man is rich enough to buy back his own past. -An Ideal Husband (1895) 没有人富有到可以赎回自己的过去。 ——改编自《理想的丈夫》 
 
 The truth is rarely pure and never simple. -The Importance of Being Earnest (1895) 真相很少纯粹，也决不简单。 ——《不可儿嬉》 
-
-To love oneself is the beginning of a lifelong romance. 爱自己是终身浪漫的开始。 ——爱自己就是开始延续一生的罗曼史。 
 
 We are all in the gutter, but some of us are looking at the stars. 我们都生活在阴沟里，但仍有人仰望星空。 
 
@@ -288,3 +288,15 @@ An excellent man; he has no enemies; and none of his friends like him. 一个极
 Time is a waste of money. -Phrases and Philosophies for the use of the Young (1894) 时间即是浪费金钱。 
 
 If one tells the truth, one is sure, sooner or later, to be found out. 说真话的人迟早要被揭穿。 艺术作品是独特脾性的独特结果。 
+
+“You can never be overdressed or overeducated.”
+
+“Be yourself; everyone else is already taken.”
+
+“Anyone who lives within their means suffers from a lack of imagination.”
+
+“You don't love someone for their looks, or their clothes, or for their fancy car, but because they sing a song only you can hear.”
+
+“Everything in the world is about sex except sex. Sex is about power.”
+
+
