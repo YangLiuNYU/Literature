@@ -159,4 +159,146 @@ Everyone is born king, and most people die in exile. 每个人生来都是君王
 
 When I was young , I used to think that money was the most important thing in life , now that I am old , I know it is. 我年青时以为金钱至上，而今年事已迈，发现果真如此。
 
-Don't be afraid of the past. If people tell you that it is irrevocable, don't believe them. 不要惧怕过去。如果人们告诉你说过去的事情无可挽回，别相信他们。 An idea that is not dangerous is unworthy of being called an idea at all. 一个思想若称不上危险，那么它就不值得被称作思想。 Arguments are extremely vulgar, for everyone in good society holds exactly the same opinion. 争论是俗不可耐的，因为道德社会里每个人都持完全相同的观点。 Death and vulgarity are the only two facts in the nineteenth century that one cannot explain away. 死亡和庸俗是十九世纪仅有的无法用巧辩逃避的东西。 Patriotism is the virtue of the vicious. 爱国是恶人的美德。 Whenever people agree with me I always feel I must be wrong. 每次人们赞同我的时候，我都觉得自己一定错了。 I am not at all romantic. I am not old enough. I leave romance to my seniors. 我一点都不浪漫。我还不算太老。还是把浪漫留给比我老的人吧。 Wicked women bother one. Good women bore one. That is the only difference between them. 坏女人给我麻烦。好女人令我厌烦。这就是她们唯一的不同。 Experience is the name every one gives to their mistakes. 每个人犯了错误，都自称是经验。 ——经验是一个人给自己所犯的错误取的名字。 And, after all, what is a fashion? From the artistic point of view, it is usually a form of ugliness so intolerable that we have to alter it every six months. Literary and Other Notes I, Woman's World (November 1887) 时尚是一种让人难以忍受的丑陋，以至于我们不得不每六个月就更改一次。 ——时装丑陋得完全令人无法容忍，以至于我们必须每6个月就改变它的样式。 A man's face is his autobiography. A woman's face is her work of fiction. 男人的面孔是他的自传，女人的面容是她的幻想作品。 There is only one real tragedy in a woman's life. The fact that her past is always her lover, and her future invariably her husband. 女人的生活中只有一个真正的悲剧：她总在缅怀过去，却必须活在未来。 We teach people how to remember, we never teach them how to grow. 我们教给人们如何记忆，却从来不教他们如何成长。 Anybody can sympathise with the sufferings of a friend, but it requires a very fine nature to sympathise with a friend's success. -The Soul of Man under Socialism (1881) 任何人都能对朋友的不幸感到同情，但要消受一个春风得意的朋友，则需要非常优良的天性。 -《社会主义下人的灵魂》 "If a woman can't make her mistakes charming, she is only a female." -Lord Arthur Savile's Crime 如果一个女人不能让她犯的错误变得迷人，她就只是一个雌性动物。 -《亚瑟·萨维尔勋爵的罪行》 "Most men and women are forced to perform parts for which they have no qualifications. Our Guildensterns play Hamlet for us, and our Hamlets have to jest like Prince Hal. The world is a stage, but the play is badly cast." -Lord Arthur Savile's Crime 大多数男人和女人被强迫扮演他们没有能力扮演的角色。我们的吉尔登斯吞为我们演哈姆雷特，而我们的哈姆雷特必须像霍尔王子一样来说笑。这个世界是个舞台，但角色被分配得很糟糕。 --《亚瑟·萨维尔勋爵的罪行》 *注：吉尔登斯吞，霍尔王子均为莎士比亚作品中人物 A little sincerity is a dangerous thing, and a great deal of it is absolutely fatal. 不够真诚是危险的，太真诚则绝对是致命的。 A man can't be too careful in the choice of his enemies. 一个人在选择他的敌人时，再小心也不为过。 All women become like their mothers. That is their tragedy. No man does. That's his. 所有女人都会变得像她们的母亲一样，这是女人的悲剧。但没有男人变得像他们的父亲，这是男人的悲剧。 America is the only country that went from barbarism to decadence without civilization in between. 美国是唯一一个直接从野蛮进入颓废、中间没有经过文明阶段的社会。 Arguments are to be avoided; they are always vulgar and often convincing. 要避免争论，争论总是俗不可耐，而且常常令人信服。 As long as a woman can look ten years younger than her own daughter, she is perfectly satisfied. 只要一个女人看上去比她自己的女儿小十岁，她就一定会心满意足。 Bad artists always admire each other's work. 糟糕的画家总是欣赏彼此的作品。 Between men and women there is no friendship possible. There is passion, enmity, worship, love, but no friendship. 男女之间不可能存在友谊，有的只是爱恨情仇。 Conscience and cowardice are really the same things. 良心和怯懦其实是一回事。 Dammit sir, it's your duty to get married. You can't be always living for pleasure. 该死，先生，结婚是你的职责，你不能总是逍遥快活。 Democracy means simply the bludgeoning of the people by the people for the people. 民主就是指人民用人民的大头棒打击人民。 Don't give a woman advice; one should never give a woman anything she can't wear in the evening. 不要给女人忠告；决不要给女人任何她晚上不能穿戴的东西。 Education is an admirable thing, but it is well to remember from time to time that nothing that is worth knowing can be taught. 教育是一件可敬的事，但要时刻牢记，没有什么值得知道的事是教得会的。 I adore political parties. They are the only place left to us where people don't talk politics. 我喜欢政治晚会，这是唯一人们不谈政治的地方。 I am not young enough to know everything. 我已经老了，没有足够的时间去了解一切。 I am so clever that sometimes I don’t understand a single word of what I’m saying. 我简直太聪明了，有时连我自己都不知道自己在说什么。 I have made an important discovery…that alcohol, taken in sufficient quantities, produces all the effects of intoxication. 我有一个重大发现——如果摄入足量酒精，就会产生各种陶醉的效果。 I like talking to a brick wall, it's the only thing in the world that never contradicts me. 我喜欢对一堵墙说话，世界上只有它不会反驳我。 I love acting. It is so much more real than life. 我喜欢看戏。与人生相比，戏剧更加真实。 I often take exercise. Why only yesterday I had breakfast in bed. 我经常锻炼。只是昨天我是在床上吃的早饭。 I think that God, in creating Man, somewhat overestimated his ability. 我想，上帝在创造人类时高估了他的能力。 I was working on the proof of one of my poems all morning, and took out a comma. In the afternoon I put it back again. 我整个早上都在校对自己的一首诗，我去掉了一个逗号。下午我又把它加上去了。 Ignorance is like a delicate flower: touch it and the bloom is gone. 无知就像是一朵精致的花朵：摸一下，它就消失了。 It is a very sad thing that nowadays there is so little useless information. 这是一件很悲哀的事——如今几乎没有无用的信息。 It is better to be beautiful than to be good, but it is better to be good than to be ugly. 个性善良不如长相美丽，不过个性善良总比生得丑好。 It is characteristic of all deep human problems that they are not to be approached without some humor and some bewilderment. 所有人类的重大问题都有一个共同点：没有点幽默和疯狂是没办法解决的。 It is only the intellectually lost who ever argue. 争论者损失的只是智力。 It is very easy to endure the difficulties of one's enemies. It is the successes of one's friends that are hard to bear. 来自敌人的困难可以忍，来自朋友的成功则无可忍。 Life is one fool thing after another whereas love is two fool things after each other. 人生就是一件蠢事追着另一件蠢事而来，而爱情则是两个蠢东西追来追去。 Like dear St Francis of Assisi I am wedded to Poverty: but in my case the marriage is not a success. 就像亲爱的圣芳济一样，我也和贫穷联姻，但我的婚姻并不成功。 Marriage is the triumph of imagination over intelligence. Second marriage is the triumph of hope over experience. 结婚是想象战胜了理智，再婚是希望战胜了经验。 Music makes one feel so romantic—at least it always gets on one's nerves, which is the same thing nowadays. 音乐让人感觉非常浪漫，至少让人感觉不安，如今两者是一回事。 No woman should ever be quite accurate about her age. It looks so calculating. 没有女人应该对她的年龄十分准确。这显得有些精于算计。 One should never trust a woman who tells her real age. If she tells that, she'll tell anything. 一个人决不应该相信说出自己真实年龄的女人。如果她把这都说出来了，那她什么都会说。Tell the cook of this restaurant with my compliments that these are the very worst sandwiches in the whole world, and that when I ask for a watercress sandwich I do not mean a loaf with a field in the middle of it. 请转告我对这家饭店厨师的赞誉，这是全世界最糟糕的三明治了，还有，我点的是豆瓣菜三明治，我并不是要面包片中夹一块菜田。 The basis of optimism is sheer terror. 乐观的基础完全是恐惧。 The Book of Life begins with a man and a woman in a garden…It ends with Revelations. 《生命之书》始于一座花园里的一男一女……它最后以《启示录》告终。 The difference between journalism and literature is that journalism is unreadable and literature is not read. 报纸和文学的区别是，报纸没法读，而文学则没人读。 The only thing to do with good advice is to pass it on. It is never of any use to oneself. 对于忠告，你所能做的，就是把它奉送给别人，忠告从来就不是给自己准备的。 The only way to get rid of a temptation is to yield to it. 摆脱诱惑的唯一方法是屈服于它。 The play was a great success, but the audience was a disaster. 演出相当成功，但观众则是一场灾难。 This suspense is terrible. I hope it will last. 悬念是可怕的。我希望它一直延续下去。 Thirty five is a very attractive age; London society is full of women who have of their own free choice remained thirty-five for years. 三十五岁是一个非常有吸引力的年龄；伦敦社交圈内满是这样好多年一直保持三十五岁的女人，她们可以自由地挑来选去。 To lose one parent may be regarded as a misfortune; to lose both looks like carelessness. 失去一个父母可以看成是一种不幸；失去双亲看上去就像是一种粗心了。 When good Americans die they go to Paris. When bad Americans die they go to America. 当美国的好人死了，他们就去巴黎。当美国的坏蛋死了，他们就去美国。 All bad poetry springs from genuine feeling. 所有糟糕的诗歌都源于真情实感。自然化的作品其内涵是显而易见的，而显而易见的内涵并不艺术。 Women are never disarmed by compliments. Men always are. That is the difference between the sexes. 恭维话从来没有让女人缴械，但可以让男人缴械。这就是性别差异。 Women have a much better time than men in this world. There are far more things forbidden to them. 女人在世上的日子要比男人好过得多。她们有太多禁忌。 Women love men for their defects; if men have enough of them women will forgive them everything, even their gigantic intellects. 女人因为男人的缺点而爱男人；如果男人的缺点足够多，女人什么事都可以原谅他们，哪怕是他们的智力。 Women represent the triumph of matter over mind, just as men represent the triumph of mind over morals. 女人代表着物质战胜了理智，正如男人代表着理智战胜了道德。 A man who does not think for himself does not think at all. 一个人倘若不为自己思考，那就从未思考过。 Young men want to be faithful, and are not; old men want to be faithless, and cannot. 年轻人想有信仰，但他们却没有；老年人不想有信仰，但却办不到。 Ambition is the last refuge of the failure. 雄心壮志是失败最后的避难所。 An excellent man; he has no enemies; and none of his friends like him. 一个极其优秀的人。他没有敌人，而他的朋友也没有一个喜欢他的。 Time is a waste of money. -Phrases and Philosophies for the use of the Young (1894) 时间即是浪费金钱。 If one tells the truth, one is sure, sooner or later, to be found out. 说真话的人迟早要被揭穿。 艺术作品是独特脾性的独特结果。 所有的艺术都是没什么用的。 我只想指出这么一个一般性的原则，就是生活模仿艺术的程度远胜过艺术模仿生活的程度。你的错误不是你对生活所知甚少，而是你知道得太多了。你已把童年时期的曙光中所拥有的那种精美的花朵，纯洁的光，天真的希望的快乐远远地抛在后面了。你已迅捷地奔跑着经过了浪漫进入了现实。 爱是不能在市场上公开买卖的，商贩的天平对之也毫无用途。爱的快乐，就像思想的快乐一样，在于感觉到它的存在。爱的目的就是爱，不多也不少。 万一我在世界上一个朋友也没有了，万一出于怜悯给我住的房子一间也没有了，万一我不得不接受赤贫者的百衲褴褛之衣，只要我能够继续摆脱所有的憎恨、冷酷和嘲弄，我就会比我身穿华丽的紫袍和漂亮的亚麻衣而灵魂却为憎恨缠绕更能平静地充满信心地面对生活。 靠爱，而且只靠爱，我们就能按照理想的方式理解处于现实关系中的其他人。 虚荣心是年轻人佩戴的一朵优雅的花。 拒绝或放弃自己的经历就是要阻止自己的发展，否认自己的经历就是自己对自己撒弥天大谎，这无异于否定灵魂。 真正的傻瓜，如上帝所嘲弄、毁灭的那些人，是不了解自己的人。 最大的罪恶是浅薄。一切被认识到的东西都是对的。 在生活中确实没有什么小大之分，一切事物都有同等的价值。 人们在生活中所犯的致命的错误不是由于人的不理智——不理智的时刻也许是人最美好的时刻——而是因为人是有逻辑性的。 只有聪明的女人才会犯骇人听闻的错误。 人生的首要责任是尽量虚伪。至于第二责任是什么，至今尚无人发现。 倘若穷人有鲜明的个性，解决贫困问题就不会困难重重。 看出灵魂与肉体区别的人既无肉体，也无灵魂。 精心制作的钮孔是艺术与自然的唯一纽带。 现实中发生的任何事情都不是无关紧要的。 空虚预示着严肃时代的到来。 在所有不重要的事物当中，风格，而非真诚，是基本的。 享乐是人们活着的唯一目标。什么也没幸福短暂。 一个人只有竭力赖帐才有希望被商业阶层铭记。 犯罪不是庸俗，但所有的庸俗都是犯罪。庸俗是他人的行为。 人总要有点怪僻。 所有好的决定都有其致命的弱点，那就是都决定得太匆忙。 要补偿偶然的一点过分注重衣饰，唯一的方法是一直接受绝对的过分教育。 超前才会完美。 关心行为的正确与否表明理智的发展已停滞不前。 多于一人相信时，真理便不再是真理。 考试当中，傻瓜往往提出智者无法回答的问题。 希腊的服饰实际上缺乏艺术性。身体只能通过身体本身来表现。 一个人要么成为一件艺术品，要么拥有一件艺术品。 唯有表面的特征能够长存。人内心的东西很快就会被发现。 工业是一切丑陋的根源。 时代通过错位而被载入历史。 只有神尝过死亡的滋味。阿波罗已经作古，但据说被他杀害的风信子却存活了下来。 尼禄和那喀索斯总是与我们同在。 老年人相信一切，中年人怀疑一切，年轻人了解一切。 完美的境界是无为，完美的目标是青年。 只有风格大师才能做到晦涩。 英国目前有千千万万的青年，他们最初都满怀信心寻求理想的职业，但结果从事的却都是一些实用的职业，这似乎有点悲剧色彩。 女人对许多事情生来就很精明。除了显而易见的东西，什么也瞒不了她们。 女人的一生是沿着情感的曲线旋转，而男人的一生是沿着理智的直线前进的。 女人可以跟任何人调情，只要有旁人看见。 上帝几乎将所有的东西都赐给了我。我有天才、名声、社会地位、才气、并富于挑战知识。我让艺术成为一种哲学，让哲学成为一种艺术。我改变了人们的心灵与事物的色彩，我的一言一行无不让人费思猜疑。 巴西尔是我心目中自己的形象，道连·格雷是我期望中的形象，亨利勋爵是世人眼中我的形象。 艺术的宗旨是展示艺术本身，同时把艺术家隐藏起来。 自传体是批评的最高形式，也是最低形式。 我们这个时代的人，读书太多所以不再聪慧，思考太多所以不再美丽。 有些作品很有耐性，长时间以来也没被人了解，原因是这些作品为一些还未有人提出的问题提供了答案。这些问题在答案出现了很久很久以后才出现。 那些自称了解自己的人，都是肤浅的人。 任何的艺术作品都无法表达观点，观点属于人，而非艺术家。 评论开始发挥影响之际也就是它不再是评论家的时候，评论的目的是写下作者自己的心情，而非改正其他人的杰作。 起初是我们养成习惯，后来是习惯造就我们。 犯罪并非是低级，但是低级都是犯罪。 一个自身美好的主题对于艺术家毫无启示，它缺乏缺陷。 显而易见的事物是艺术家唯一无法看到的事物，显而易见的事物是大众唯一能够看到的事物，结果出现了记者的评论。 艺术是世界上唯一严肃的事物，而艺术家则是唯一永远不严肃的人。 犯罪分子离我们如此地近，就连警察都能够发现他们，他们离我们又如此遥远，只有诗人能够理解他们。 生活中不正常的事物与艺术的关系是正常的，而且是生活中与艺术保持正常关系的唯一事物。 青春微笑无须原因，这是它最主要的魅力。 我的缺点就是我没有缺点。 第一：我永远是对的；第二：如果我错了，请参见第一条。 如果你以为已经理解我的意思了，那么你已经误解了我的意思。 结婚是误解的结果，男女因误会而结合，因了解而分开。 婚姻像抽烟一样令人颓丧，而且比抽烟贵得多。 男人经常希望自己是女人初恋的对象，女人则希望成为男人最后的罗曼史。 结婚这件事，所有女人的看法都一致，所有男人的看法都不同。 如果我写不出美丽的书，至少我可以读到美丽的书，还有什么能比这更使我快乐？ 我用一句短语包含一切体系，用一个警句归纳所有存在。 我迟早要成名的，没有美名也有恶名在外。 只有拍卖师才对所有的艺术流派一存偏见，一概推崇。 美丽的东西有了过失，要不分青红皂白地原谅它；丑陋的东西有了过失要不顾天地良心地鄙视它。 我并没有为了钱出卖自己，我不过用重大的代价买到了成功。 现在我很快乐，所以我很肯定，我的人格已荡然无存。 从艺术的观点来看，坏人是非常吸引的研究对象。他们代表了色彩、变化与特异。好人会激怒人的理性，坏人则引发人的想象力。 艺术家没有伦理上的好恶，艺术家如在伦理上有所臧否，那是不可原谅的娇柔造作。 邪恶与美德是艺术家艺术创作的素材。 关心行为的正确与否表明理智的发展已经停滞不前。 一切艺术都是毫无用处的。 大多女人如此虚伪，以至了无艺术感觉，大多男人是如此自然，以至了无美的感觉。 从形式着眼，音乐家的艺术是各种艺术的典型，感觉着眼，演员的技艺是典型。 艺术永远不应尝试去变得流行，是公众自己得试着变得艺术化才行。 一生只爱一次的人是肤浅的，他们把那叫做忠贞不渝，我却叫做习惯性懒惰或是缺乏想象力。情感生活的忠贞不渝就如同智力生活的一成不变一样，简直是承认失败。 你不应该说那是你生命中最浪漫的经历，倒应该说那是你生命中第一次的浪漫经历。 在人的生活中的每一瞬间，人都只能是他将要成为的人，而不是他曾经成为的人。 享乐是人生唯一的目标。 成为一件艺术品是生活的目的。 执着是缺乏想象力之人最后的遁词。 爱情是多无聊的东西，它的用处比不上逻辑的一半，因为它什么都不能证明，它总是告诉人一些不会有的事，并且总是教人相信一些并不是实有的事，总之，它是完全不实际的，并且在我们这个时代什么都得讲实际，我还是回到理性上去，还是去研究形而上学吧！ 别试图去补救无望的过失，别在愚味、庸俗各猥琐的事上浪费你的生命。这些东西是我们这个时代病态的目标和虚假的理想。去过你奇妙的生活，点滴都别浪费。 一个自己的灵魂还有他朋友们的感情，这是生活中最有魅力的东西。 与其去结交可靠的朋友，倒不如使自己的朋友可靠。 人真正的完美不在于他拥有什么，而在于他是什么。 生活模仿艺术，而非艺术在反映生活。 艺术之所以为艺术，就是因为它不自然。 青春微笑无须原因，这是它最主要的魅力之一。 如今是这样的时代，看得太多而没有时间欣赏，写得太多而没有时间思想。 除了感官，什么也不能治愈灵魂的创痛就如感官的饥渴也只有灵魂解除得了。 成为自己生活的旁观者，可以避免生活中烦恼。 一个好的名声，就像好的意向一样，在很多个举动中形成，在一个举动中失去。 你的错误不是对生活所甚太少，而是知道得太多了。你已把童年时期曙光中所拥有的那种精美的花朵纯洁的光天真的希望，快快乐乐地抛在后面了，你已经迅捷地奔跑着 经过了浪漫进入了现实。 男女因为误会而结合，因了解而分开。 任何的艺术作品都无法表达观点，观点属于人，而非艺术家。 评论开始发挥影响之际也就是它不再是评论的时候。评论的目的是写下作者自己的心情，而非改正其他人的的杰作。 一个人只有不付账单，才能期望生活在商家的记忆中。 只有肤浅的人了解自己。 人总应该有点不可理喻之处。 舆论只存在没有思想的地方。 过去书由文人来写，被大众阅读，如今书由大众来写，无人阅读。 一个自身完美的主题对艺术家毫无启示，它缺乏缺陷。 显而易见的事物是艺术家无法看到的唯一事物，显而易见的事物是大众能够看到的唯 一事物。结果出现了记者评论。 就连追随者也有他的用处。他站在御座后面，在君主凯旋之时对他悄声耳语道：“人终究不能永生。” 改变时代的是人格而不是原则。 我喜欢人甚于原则，我喜欢没有原则的人胜于全世界。 每件赏心悦目的东西背后，总有一段悲哀的隐情，连最不起眼的小花要开放，世界也得经历阵痛。 一个男人只要不爱女人，就能跟女人相处得很愉快。 社会仅仅以一种精神概念而存在，真实的世界仅仅是个体的。 在艺术上，新的体验比一切更重要。 我的品味其实十分简单，只要事事完美也就算了。 男人经常希望是女人的初恋对象，女人则希望成为男人最后的罗曼史。 起初是我们造成习惯，后来是习惯造就我们。 这世界就是舞台，可角色分配得不像样子。 英国人决不对一件艺术品感兴趣，直到有人说这件东西不道德。 艺术家的功能就是要创新，而不是记载历史。 有些作品很有耐性，长时间以来也没被了解，原因是这些作品为一些还未有人提出的问题给出了答案，这些问题在答案出现了很久以后才出现。 节制是不幸的，适量就像顿普通的饭菜那么糟糕，过度才像一席盛宴那么尽兴。
+Don't be afraid of the past. If people tell you that it is irrevocable, don't believe them. 不要惧怕过去。如果人们告诉你说过去的事情无可挽回，别相信他们。 
+
+An idea that is not dangerous is unworthy of being called an idea at all. 一个思想若称不上危险，那么它就不值得被称作思想。 
+
+Arguments are extremely vulgar, for everyone in good society holds exactly the same opinion. 争论是俗不可耐的，因为道德社会里每个人都持完全相同的观点。 
+
+Death and vulgarity are the only two facts in the nineteenth century that one cannot explain away. 死亡和庸俗是十九世纪仅有的无法用巧辩逃避的东西。 
+
+Patriotism is the virtue of the vicious. 爱国是恶人的美德。 
+
+Whenever people agree with me I always feel I must be wrong. 每次人们赞同我的时候，我都觉得自己一定错了。 
+
+I am not at all romantic. I am not old enough. I leave romance to my seniors. 我一点都不浪漫。我还不算太老。还是把浪漫留给比我老的人吧。 
+
+Wicked women bother one. Good women bore one. That is the only difference between them. 坏女人给我麻烦。好女人令我厌烦。这就是她们唯一的不同。 
+
+Experience is the name every one gives to their mistakes. 每个人犯了错误，都自称是经验。 ——经验是一个人给自己所犯的错误取的名字。 
+
+And, after all, what is a fashion? From the artistic point of view, it is usually a form of ugliness so intolerable that we have to alter it every six months. Literary and Other Notes I, Woman's World (November 1887) 时尚是一种让人难以忍受的丑陋，以至于我们不得不每六个月就更改一次。 ——时装丑陋得完全令人无法容忍，以至于我们必须每6个月就改变它的样式。 
+
+A man's face is his autobiography. A woman's face is her work of fiction. 男人的面孔是他的自传，女人的面容是她的幻想作品。 
+
+There is only one real tragedy in a woman's life. The fact that her past is always her lover, and her future invariably her husband. 女人的生活中只有一个真正的悲剧：她总在缅怀过去，却必须活在未来。 
+
+We teach people how to remember, we never teach them how to grow. 我们教给人们如何记忆，却从来不教他们如何成长。 
+
+Anybody can sympathise with the sufferings of a friend, but it requires a very fine nature to sympathise with a friend's success. -The Soul of Man under Socialism (1881) 任何人都能对朋友的不幸感到同情，但要消受一个春风得意的朋友，则需要非常优良的天性。 -《社会主义下人的灵魂》 
+
+"If a woman can't make her mistakes charming, she is only a female." -Lord Arthur Savile's Crime 如果一个女人不能让她犯的错误变得迷人，她就只是一个雌性动物。 -《亚瑟·萨维尔勋爵的罪行》
+
+"Most men and women are forced to perform parts for which they have no qualifications. Our Guildensterns play Hamlet for us, and our Hamlets have to jest like Prince Hal. The world is a stage, but the play is badly cast." -Lord Arthur Savile's Crime 大多数男人和女人被强迫扮演他们没有能力扮演的角色。我们的吉尔登斯吞为我们演哈姆雷特，而我们的哈姆雷特必须像霍尔王子一样来说笑。这个世界是个舞台，但角色被分配得很糟糕。 --《亚瑟·萨维尔勋爵的罪行》 *注：吉尔登斯吞，霍尔王子均为莎士比亚作品中人物 
+
+A little sincerity is a dangerous thing, and a great deal of it is absolutely fatal. 不够真诚是危险的，太真诚则绝对是致命的。 
+
+A man can't be too careful in the choice of his enemies. 一个人在选择他的敌人时，再小心也不为过。 
+
+All women become like their mothers. That is their tragedy. No man does. That's his. 所有女人都会变得像她们的母亲一样，这是女人的悲剧。但没有男人变得像他们的父亲，这是男人的悲剧。 
+
+America is the only country that went from barbarism to decadence without civilization in between. 美国是唯一一个直接从野蛮进入颓废、中间没有经过文明阶段的社会。 
+
+Arguments are to be avoided; they are always vulgar and often convincing. 要避免争论，争论总是俗不可耐，而且常常令人信服。 
+
+As long as a woman can look ten years younger than her own daughter, she is perfectly satisfied. 只要一个女人看上去比她自己的女儿小十岁，她就一定会心满意足。 
+
+Bad artists always admire each other's work. 糟糕的画家总是欣赏彼此的作品。 
+
+Between men and women there is no friendship possible. There is passion, enmity, worship, love, but no friendship. 男女之间不可能存在友谊，有的只是爱恨情仇。 
+
+Conscience and cowardice are really the same things. 良心和怯懦其实是一回事。 
+
+Dammit sir, it's your duty to get married. You can't be always living for pleasure. 该死，先生，结婚是你的职责，你不能总是逍遥快活。 
+
+Democracy means simply the bludgeoning of the people by the people for the people. 民主就是指人民用人民的大头棒打击人民。 
+
+Don't give a woman advice; one should never give a woman anything she can't wear in the evening. 不要给女人忠告；决不要给女人任何她晚上不能穿戴的东西。 
+
+Education is an admirable thing, but it is well to remember from time to time that nothing that is worth knowing can be taught. 教育是一件可敬的事，但要时刻牢记，没有什么值得知道的事是教得会的。 
+
+I adore political parties. They are the only place left to us where people don't talk politics. 我喜欢政治晚会，这是唯一人们不谈政治的地方。 
+
+I am not young enough to know everything. 我已经老了，没有足够的时间去了解一切。 
+
+I am so clever that sometimes I don’t understand a single word of what I’m saying. 我简直太聪明了，有时连我自己都不知道自己在说什么。 
+
+I have made an important discovery…that alcohol, taken in sufficient quantities, produces all the effects of intoxication. 我有一个重大发现——如果摄入足量酒精，就会产生各种陶醉的效果。 
+
+I like talking to a brick wall, it's the only thing in the world that never contradicts me. 我喜欢对一堵墙说话，世界上只有它不会反驳我。 
+
+I love acting. It is so much more real than life. 我喜欢看戏。与人生相比，戏剧更加真实。 
+
+I often take exercise. Why only yesterday I had breakfast in bed. 我经常锻炼。只是昨天我是在床上吃的早饭。 
+
+I think that God, in creating Man, somewhat overestimated his ability. 我想，上帝在创造人类时高估了他的能力。 
+
+I was working on the proof of one of my poems all morning, and took out a comma. In the afternoon I put it back again. 我整个早上都在校对自己的一首诗，我去掉了一个逗号。下午我又把它加上去了。 
+
+Ignorance is like a delicate flower: touch it and the bloom is gone. 无知就像是一朵精致的花朵：摸一下，它就消失了。 
+
+It is a very sad thing that nowadays there is so little useless information. 这是一件很悲哀的事——如今几乎没有无用的信息。 
+
+It is better to be beautiful than to be good, but it is better to be good than to be ugly. 个性善良不如长相美丽，不过个性善良总比生得丑好。 
+
+It is characteristic of all deep human problems that they are not to be approached without some humor and some bewilderment. 所有人类的重大问题都有一个共同点：没有点幽默和疯狂是没办法解决的。 
+
+It is only the intellectually lost who ever argue. 争论者损失的只是智力。 
+
+It is very easy to endure the difficulties of one's enemies. It is the successes of one's friends that are hard to bear. 来自敌人的困难可以忍，来自朋友的成功则无可忍。 
+
+Life is one fool thing after another whereas love is two fool things after each other. 人生就是一件蠢事追着另一件蠢事而来，而爱情则是两个蠢东西追来追去。 
+
+Like dear St Francis of Assisi I am wedded to Poverty: but in my case the marriage is not a success. 就像亲爱的圣芳济一样，我也和贫穷联姻，但我的婚姻并不成功。 
+
+Marriage is the triumph of imagination over intelligence. Second marriage is the triumph of hope over experience. 结婚是想象战胜了理智，再婚是希望战胜了经验。 
+
+Music makes one feel so romantic—at least it always gets on one's nerves, which is the same thing nowadays. 音乐让人感觉非常浪漫，至少让人感觉不安，如今两者是一回事。 
+
+No woman should ever be quite accurate about her age. It looks so calculating. 没有女人应该对她的年龄十分准确。这显得有些精于算计。 
+
+One should never trust a woman who tells her real age. If she tells that, she'll tell anything. 一个人决不应该相信说出自己真实年龄的女人。如果她把这都说出来了，那她什么都会说。
+
+Tell the cook of this restaurant with my compliments that these are the very worst sandwiches in the whole world, and that when I ask for a watercress sandwich I do not mean a loaf with a field in the middle of it. 请转告我对这家饭店厨师的赞誉，这是全世界最糟糕的三明治了，还有，我点的是豆瓣菜三明治，我并不是要面包片中夹一块菜田。 
+
+The basis of optimism is sheer terror. 乐观的基础完全是恐惧。 
+
+The Book of Life begins with a man and a woman in a garden…It ends with Revelations. 《生命之书》始于一座花园里的一男一女……它最后以《启示录》告终。 
+
+The difference between journalism and literature is that journalism is unreadable and literature is not read. 报纸和文学的区别是，报纸没法读，而文学则没人读。 
+
+The only thing to do with good advice is to pass it on. It is never of any use to oneself. 对于忠告，你所能做的，就是把它奉送给别人，忠告从来就不是给自己准备的。 
+
+The only way to get rid of a temptation is to yield to it. 摆脱诱惑的唯一方法是屈服于它。 
+
+The play was a great success, but the audience was a disaster. 演出相当成功，但观众则是一场灾难。 
+
+This suspense is terrible. I hope it will last. 悬念是可怕的。我希望它一直延续下去。 
+
+Thirty five is a very attractive age; London society is full of women who have of their own free choice remained thirty-five for years. 三十五岁是一个非常有吸引力的年龄；伦敦社交圈内满是这样好多年一直保持三十五岁的女人，她们可以自由地挑来选去。 
+
+To lose one parent may be regarded as a misfortune; to lose both looks like carelessness. 失去一个父母可以看成是一种不幸；失去双亲看上去就像是一种粗心了。 
+
+When good Americans die they go to Paris. When bad Americans die they go to America. 当美国的好人死了，他们就去巴黎。当美国的坏蛋死了，他们就去美国。 
+
+All bad poetry springs from genuine feeling. To be natural is to be obvious, and to be obvious is to be inartistic. 所有糟糕的诗歌都源于真情实感。自然化的作品其内涵是显而易见的，而显而易见的内涵并不艺术。 
+
+Women are never disarmed by compliments. Men always are. That is the difference between the sexes. 恭维话从来没有让女人缴械，但可以让男人缴械。这就是性别差异。 
+
+Women have a much better time than men in this world. There are far more things forbidden to them. 女人在世上的日子要比男人好过得多。她们有太多禁忌。 
+
+Women love men for their defects; if men have enough of them women will forgive them everything, even their gigantic intellects. 女人因为男人的缺点而爱男人；如果男人的缺点足够多，女人什么事都可以原谅他们，哪怕是他们的智力。 
+
+Women represent the triumph of matter over mind, just as men represent the triumph of mind over morals. 女人代表着物质战胜了理智，正如男人代表着理智战胜了道德。 
+
+A man who does not think for himself does not think at all. 一个人倘若不为自己思考，那就从未思考过。 
+
+Young men want to be faithful, and are not; old men want to be faithless, and cannot. 年轻人想有信仰，但他们却没有；老年人不想有信仰，但却办不到。 
+
+Ambition is the last refuge of the failure. 雄心壮志是失败最后的避难所。 
+
+An excellent man; he has no enemies; and none of his friends like him. 一个极其优秀的人。他没有敌人，而他的朋友也没有一个喜欢他的。 
+
+Time is a waste of money. -Phrases and Philosophies for the use of the Young (1894) 时间即是浪费金钱。 
+
+If one tells the truth, one is sure, sooner or later, to be found out. 说真话的人迟早要被揭穿。 艺术作品是独特脾性的独特结果。 
